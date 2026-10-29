@@ -10,16 +10,16 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 <img width="506" height="117" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled295.png" />
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) 𝐓𝐡𝐞 𝐭𝐡𝐞𝐦𝐞 𝐚𝐫𝐞 𝐥𝐢𝐤𝐞𝐥𝐲 𝐢𝐧𝐬𝐩𝐢𝐫𝐞𝐝 𝐛𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐳𝐨𝐦𝐛𝐨𝐢𝐝, 𝐰𝐡𝐢𝐜𝐡 𝐢𝐬 𝐚𝐧 𝐨𝐩𝐞𝐧 𝐰𝐨𝐫𝐥𝐝 𝐫𝐩𝐠 𝐠𝐚𝐦𝐞.
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) 𝐓𝐡𝐞 𝐭𝐡𝐞𝐦𝐞 𝐚𝐫𝐞 𝐥𝐢𝐤𝐞𝐥𝐲 𝐢𝐧𝐬𝐩𝐢𝐫𝐞𝐝 𝐛𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐳𝐨𝐦𝐛𝐨𝐢𝐝, 𝐰𝐡𝐢𝐜𝐡 𝐢𝐬 𝐚𝐧 𝐨𝐩𝐞𝐧 𝐰𝐨𝐫𝐥𝐝 𝐫𝐩𝐠 𝐠𝐚𝐦𝐞. ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif)
 
-𝐊𝐧𝐨𝐱-𝐄𝐯𝐞𝐧𝐭 𝐢𝐬 𝐚 𝐆𝐢𝐭𝐇𝐮𝐛 𝐚𝐜𝐜𝐨𝐮𝐧𝐭 𝐭𝐡𝐚𝐭 𝐢𝐬 𝐚 𝐟𝐚𝐧-𝐫𝐮𝐧 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐚𝐧𝐝 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧 𝐡𝐮𝐛.
+![](https://file.garden/ZroW4OcqSGtS0a5j/88488dee.gif) 𝐊𝐧𝐨𝐱-𝐄𝐯𝐞𝐧𝐭 𝐢𝐬 𝐚 𝐆𝐢𝐭𝐇𝐮𝐛 𝐚𝐜𝐜𝐨𝐮𝐧𝐭 𝐭𝐡𝐚𝐭 𝐢𝐬 𝐚 𝐟𝐚𝐧-𝐫𝐮𝐧 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐚𝐧𝐝 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧 𝐡𝐮𝐛. ![](https://file.garden/ZroW4OcqSGtS0a5j/88488dee.gif)
 
-N𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧𝐬 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐝𝐨𝐧𝐞 𝐚𝐬 𝐮𝐬𝐮𝐚𝐥 𝐥𝐢𝐤𝐞 𝐨𝐭𝐡𝐞𝐫𝐬 𝐰𝐡𝐨 𝐡𝐚𝐯𝐞 𝐝𝐨𝐧𝐞 𝐭𝐡𝐢𝐬 𝐛𝐞𝐟𝐨𝐫𝐞.
+![](https://file.garden/ZroW4OcqSGtS0a5j/b86cd854.gif) N𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧𝐬 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐝𝐨𝐧𝐞 𝐚𝐬 𝐮𝐬𝐮𝐚𝐥 𝐥𝐢𝐤𝐞 𝐨𝐭𝐡𝐞𝐫𝐬 𝐰𝐡𝐨 𝐡𝐚𝐯𝐞 𝐝𝐨𝐧𝐞 𝐭𝐡𝐢𝐬 𝐛𝐞𝐟𝐨𝐫𝐞. ![](https://file.garden/ZroW4OcqSGtS0a5j/b86cd854.gif)
 
-Y𝐨𝐮 𝐜𝐚𝐧 𝐜𝐡𝐨𝐨𝐬𝐞 𝐞𝐢𝐭𝐡𝐞𝐫 𝐨𝐧𝐞 𝐨𝐟 𝐭𝐡𝐞 𝐜𝐚𝐭𝐞𝐠𝐨𝐫𝐢𝐞𝐬 𝐚𝐬 𝐚 𝐒𝐮𝐫𝐯𝐢𝐯𝐨𝐫, 𝐇𝐚𝐥𝐟-𝐈𝐧𝐟𝐞𝐜𝐭𝐞𝐝, 𝐀 𝐙𝐨𝐦𝐛𝐢𝐞.
+![](https://file.garden/ZroW4OcqSGtS0a5j/506f1363.gif) Y𝐨𝐮 𝐜𝐚𝐧 𝐜𝐡𝐨𝐨𝐬𝐞 𝐞𝐢𝐭𝐡𝐞𝐫 𝐨𝐧𝐞 𝐨𝐟 𝐭𝐡𝐞 𝐜𝐚𝐭𝐞𝐠𝐨𝐫𝐢𝐞𝐬 𝐚𝐬 𝐚 𝐒𝐮𝐫𝐯𝐢𝐯𝐨𝐫, 𝐇𝐚𝐥𝐟-𝐈𝐧𝐟𝐞𝐜𝐭𝐞𝐝, 𝐀 𝐙𝐨𝐦𝐛𝐢𝐞. ![](https://file.garden/ZroW4OcqSGtS0a5j/506f1363.gif)
 
-𝐓𝐡𝐢𝐧𝐠𝐬 𝐥𝐢𝐤𝐞 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩𝐩𝐞𝐫 𝐨𝐫 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐥𝐢𝐤𝐞 𝐭𝐡𝐚𝐭 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐢𝐠𝐧𝐨𝐫𝐞𝐝.
+![](https://file.garden/ZroW4OcqSGtS0a5j/f1a617b1.gif) 𝐓𝐡𝐢𝐧𝐠𝐬 𝐥𝐢𝐤𝐞 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩𝐩𝐞𝐫 𝐨𝐫 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐥𝐢𝐤𝐞 𝐭𝐡𝐚𝐭 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐢𝐠𝐧𝐨𝐫𝐞𝐝. ![](https://file.garden/ZroW4OcqSGtS0a5j/f1a617b1.gif)
 
-𝐓𝐨 𝐢𝐧𝐟𝐨𝐫𝐦 𝐭𝐡𝐞𝐫𝐞'𝐬 𝐚 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐚𝐭𝐢𝐜 𝐩𝐞𝐫𝐬𝐨𝐧 𝐛𝐞𝐢𝐧𝐠 𝐚𝐝𝐝𝐞𝐝 𝐛𝐲 𝐦𝐢𝐬𝐭𝐚𝐤𝐞, 𝐠𝐨 𝐭𝐨 𝐚𝐭𝐚𝐛𝐨𝐨𝐤 𝐚𝐧𝐝 𝐛𝐞 𝐬𝐢𝐧𝐜𝐞𝐫𝐞 𝐬𝐨 𝐈 𝐜𝐚𝐧 𝐫𝐞𝐦𝐨𝐯𝐞 𝐭𝐡𝐞𝐦.
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 𝐓𝐨 𝐢𝐧𝐟𝐨𝐫𝐦 𝐭𝐡𝐞𝐫𝐞'𝐬 𝐚 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐚𝐭𝐢𝐜 𝐩𝐞𝐫𝐬𝐨𝐧 𝐛𝐞𝐢𝐧𝐠 𝐚𝐝𝐝𝐞𝐝 𝐛𝐲 𝐦𝐢𝐬𝐭𝐚𝐤𝐞, 𝐠𝐨 𝐭𝐨 𝐚𝐭𝐚𝐛𝐨𝐨𝐤 𝐚𝐧𝐝 𝐛𝐞 𝐬𝐢𝐧𝐜𝐞𝐫𝐞 𝐬𝐨 𝐈 𝐜𝐚𝐧 𝐫𝐞𝐦𝐨𝐯𝐞 𝐭𝐡𝐞𝐦. ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif)
 
 </p>
