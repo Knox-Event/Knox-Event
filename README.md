@@ -30,3 +30,42 @@
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Adding problematic medias are not tolerated.}}$
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Users can nominate from multiple medias/categories if not problematic.}}$
+
+<div align="center">
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/184fc1780aba791245035c5705422212.jpg)
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/81ff17a79b9591ed2a5647801817b7d3482f1080.png)
+
+</p>
+
+<div align="left">
+
+<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224500.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
+
+</p>
+
+<div align="center">
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/7288400f065abd1cc6d3c00eee25d637f0b7fdb2.png)
+
+</p>
+
+
+<div align="center">
+
+<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224529.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled299.png" />
+
+</p>
+
+<div align="center">
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/7a340677f251f40c40e017b50b7055e9df2c0720.png)
+
+</p>
+
+<div align="right">
+
+<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224418.png" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
+
+</p>
