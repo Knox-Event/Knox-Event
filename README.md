@@ -15,6 +15,10 @@
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Use the }}\text{\color{#42f102}{Nominate}}\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ <a href="https://knoxevent.atabook.org">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled301.png" alt="atabook" height=“50” width="150">
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored. Report mistaken additions via Atabook for removal.}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored. Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for other additional stuff}}$ <a href="https://knoxevent.atabook.org">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled303.png" alt="report" height=“50” width="150">
+
+  ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{This nomination list are updated regularly, do not spam my inbox though.}}$ <a href="https://github.com/hwobae">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
 
 </p>
