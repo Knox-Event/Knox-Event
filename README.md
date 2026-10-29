@@ -18,6 +18,8 @@
 <br>
 ㅤ<img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" width="~" height="50" alt=""><br>
 <br>
+$\color{#858074}{\textsf{The Tempest (aka. The Tempist) is one of many}}$
+<br>
 $\text{\color{#4d7c00}{The theme here are likely inspired by Project Zomboid, an open world zombie RPG game. The Knox-Event is one of many PonyTown Nomination and Fan-run Community Accounts.}}$
 <br>
 $\text{\color{#4d7c00}{This is only created meant for funsies and showing appreciation towards the players + about Project Zomboid since its rarely mentioned in Pony Town.}}$
