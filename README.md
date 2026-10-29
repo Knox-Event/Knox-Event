@@ -10,7 +10,7 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 <img width="506" height="117" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled295.png" />
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![]()![]()![]()
+![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![]()![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)
 
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) 𝐓𝐡𝐞 𝐭𝐡𝐞𝐦𝐞 𝐚𝐫𝐞 𝐥𝐢𝐤𝐞𝐥𝐲 𝐢𝐧𝐬𝐩𝐢𝐫𝐞𝐝 𝐛𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐳𝐨𝐦𝐛𝐨𝐢𝐝, 𝐰𝐡𝐢𝐜𝐡 𝐢𝐬 𝐚𝐧 𝐨𝐩𝐞𝐧 𝐰𝐨𝐫𝐥𝐝 𝐫𝐩𝐠 𝐠𝐚𝐦𝐞. ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif)
