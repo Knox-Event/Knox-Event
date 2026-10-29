@@ -14,7 +14,7 @@ $\text{\color{#4d7c00}{The theme here are likely inspired by Project Zomboid, an
 
 $\text{\color{#4d7c00}{This is only created meant for funsies and showing appreciation towards the players + about Project Zomboid since its rarely mentioned in Pony Town.}}$
 
-$\text{\color{#4d7c00}{Press the}} \text{\color{#42f102}{NOMINATE}} \text{\color{#4d7c00}{button to nominate yourself or for others.}}$
+$\text{\color{#4d7c00}{Press the }}\text{\color{#42f102}{NOMINATE}}\text{\color{#4d7c00}{ button to nominate yourself or for others.}}$
 
 </p>
 
