@@ -14,7 +14,7 @@
         ㅤ<br>
       </th>
     </table>
-$\color{#4d7c00}{\textsf{The theme here are likely inspired by Project Zomboid, an open world zombie RPG game. The Knox-Event is one of many PonyTown Nomination and Fan-run Community Accounts.}}$<br>
+
 <br>
 ㅤ<img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" width="~" height="50" alt=""><br>
 <br>
@@ -33,3 +33,20 @@ $\text{\color{#4d7c00}{Press the }}\text{\color{#42f102}{NOMINATE}}\text{\color{
 
 
 </p>
+
+ㅤ<br>
+ㅤ<img src="https://files.catbox.moe/xyjfyp.png" width="~" height="50" alt="THE TEMPEST WELCOMES YOU."><br>
+ㅤ $\color{#858074}{\textsf{The Tempest (aka. The Tempist) is one of many}}$
+$\color{#CBC8C0}{\textsf{PonyTown Nomination Accounts}}$ $\color{#858074}{\textsf{.}}$<br>
+
+ㅤ $\color{#858074}{\textsf{It was created with the purpose of having fun and to appreciate fellow players.}}$<br>
+ㅤ $\color{#858074}{\textsf{The character-theming is solely for my (ADMIN's) own enjoyment; Noli is I and I am Him.}}$<br>
+
+ㅤ $\color{#858074}{\textsf{Refer to the buttons on the left-hand side to}}$
+$\color{#CBC8C0}{\textsf{NOMINATE}}$
+$\color{#858074}{\textsf{or}}$
+$\color{#CBC8C0}{\textsf{REPORT}}$
+$\color{#858074}{\textsf{others.}}$<br>
+
+ㅤ [<img src="https://files.catbox.moe/ojyjmx.png" width="~" height="40" alt="RAN BY UNLEASH-NOLI">](https://github.com/UNLEASH-NOLI)<br>
+ㅤ<br>
