@@ -73,7 +73,7 @@ placeholder
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224529.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled299.png" />
 
-$\text{\color{#B5C900}{♞}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠 [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
+$\text{\color{#B5C900}{♞}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠! [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
 
 </p>
 
@@ -87,6 +87,6 @@ $\text{\color{#B5C900}{♞}}$ <a href="https://github.com/hwobae" style="color: 
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224418.png" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
-placeholder 
+$\text{\color{#a50000}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚!}}$
 
 </p>
