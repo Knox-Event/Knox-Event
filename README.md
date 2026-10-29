@@ -20,6 +20,16 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/f1a617b1.gif) 𝐓𝐡𝐢𝐧𝐠𝐬 𝐥𝐢𝐤𝐞 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩𝐩𝐞𝐫 𝐨𝐫 𝐚𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐥𝐢𝐤𝐞 𝐭𝐡𝐚𝐭 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐢𝐠𝐧𝐨𝐫𝐞𝐝. ![](https://file.garden/ZroW4OcqSGtS0a5j/f1a617b1.gif)
 
+![](https://file.garden/ZroW4OcqSGtS0a5j/27117626.gif) 𝐓𝐡𝐞 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧𝐬 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐮𝐩𝐝𝐚𝐭𝐞𝐝 𝐫𝐞𝐠𝐮𝐥𝐚𝐫𝐥𝐲 𝐬𝐨 𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧'𝐭 𝐬𝐩𝐚𝐦 𝐨𝐫 𝐛𝐞 𝐢𝐧 𝐬𝐮𝐜𝐡 𝐚 𝐫𝐮𝐬𝐡. ![](https://file.garden/ZroW4OcqSGtS0a5j/27117626.gif)
+
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 𝐓𝐨 𝐢𝐧𝐟𝐨𝐫𝐦 𝐭𝐡𝐞𝐫𝐞'𝐬 𝐚 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐚𝐭𝐢𝐜 𝐩𝐞𝐫𝐬𝐨𝐧 𝐛𝐞𝐢𝐧𝐠 𝐚𝐝𝐝𝐞𝐝 𝐛𝐲 𝐦𝐢𝐬𝐭𝐚𝐤𝐞, 𝐠𝐨 𝐭𝐨 𝐚𝐭𝐚𝐛𝐨𝐨𝐤 𝐚𝐧𝐝 𝐛𝐞 𝐬𝐢𝐧𝐜𝐞𝐫𝐞 𝐬𝐨 𝐈 𝐜𝐚𝐧 𝐫𝐞𝐦𝐨𝐯𝐞 𝐭𝐡𝐞𝐦. ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif)
+
+</p>
+
+<div align="center">
+
+<img width="340" height="129" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
+
+
 
 </p>
