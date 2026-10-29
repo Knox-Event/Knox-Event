@@ -10,6 +10,9 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 <img width="506" height="117" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled295.png" />
 
+<img width="2048" height="234" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/ec10b4718c3caeed50d40e45014f6ece8aa3f9e3.png" />
+
+
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) 𝐓𝐡𝐞 𝐭𝐡𝐞𝐦𝐞 𝐚𝐫𝐞 𝐥𝐢𝐤𝐞𝐥𝐲 𝐢𝐧𝐬𝐩𝐢𝐫𝐞𝐝 𝐛𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐳𝐨𝐦𝐛𝐨𝐢𝐝, 𝐰𝐡𝐢𝐜𝐡 𝐢𝐬 𝐚𝐧 𝐨𝐩𝐞𝐧 𝐰𝐨𝐫𝐥𝐝 𝐫𝐩𝐠 𝐠𝐚𝐦𝐞. ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif)
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/88488dee.gif) 𝐊𝐧𝐨𝐱-𝐄𝐯𝐞𝐧𝐭 𝐢𝐬 𝐚 𝐆𝐢𝐭𝐇𝐮𝐛 𝐚𝐜𝐜𝐨𝐮𝐧𝐭 𝐭𝐡𝐚𝐭 𝐢𝐬 𝐚 𝐟𝐚𝐧-𝐫𝐮𝐧 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐚𝐧𝐝 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧 𝐡𝐮𝐛. ![](https://file.garden/ZroW4OcqSGtS0a5j/88488dee.gif)
@@ -30,6 +33,7 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 <img width="340" height="129" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
+![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)
 
 
 </p>
