@@ -21,4 +21,12 @@
   ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{This nomination list are updated regularly, do not spam my inbox though.}}$ <a href="https://github.com/hwobae">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
 
-</p>
+<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029222623.png" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose another. First come, first serve.}}$
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Do not be upset when your character are taken already, zombies still wants u trust me}}$
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Adding problematic medias are not tolerated.}}$
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Users can nominate from multiple medias/categories if not problematic.}}$
