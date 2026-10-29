@@ -10,7 +10,7 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 <img width="506" height="117" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled295.png" />
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![]()![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)
+![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)![]()![](https://file.garden/ZroW4OcqSGtS0a5j/k10.gif)
 
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) 𝐓𝐡𝐞 𝐭𝐡𝐞𝐦𝐞 𝐚𝐫𝐞 𝐥𝐢𝐤𝐞𝐥𝐲 𝐢𝐧𝐬𝐩𝐢𝐫𝐞𝐝 𝐛𝐲 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐳𝐨𝐦𝐛𝐨𝐢𝐝, 𝐰𝐡𝐢𝐜𝐡 𝐢𝐬 𝐚𝐧 𝐨𝐩𝐞𝐧 𝐰𝐨𝐫𝐥𝐝 𝐫𝐩𝐠 𝐠𝐚𝐦𝐞. ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif)
@@ -34,6 +34,8 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 <img width="340" height="129" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)
+
+![]() 𝐀𝐥𝐥 (𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫) 𝐨𝐩𝐞𝐫𝐚𝐭𝐞𝐬 𝐮𝐧𝐝𝐞𝐫 𝐭𝐡𝐞 𝐫𝐮𝐥𝐞 𝐨𝐟 "𝐟𝐢𝐫𝐬𝐭 𝐜𝐨𝐦𝐞, 𝐟𝐢𝐫𝐬𝐭 𝐬𝐞𝐫𝐯𝐞". ![]()
 
 
 </p>
