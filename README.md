@@ -33,7 +33,7 @@ $\text{\color{#e5f542}{➤} \color{#e5f542}{𝐁}\color{#d4e83a}{𝐞}\color{#c2
 
 <img width="340" height="129" alt="spiffo n flashlight" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)
+![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)![](https://file.garden/ZroW4OcqSGtS0a5j/when%20you%20die%20ull%20rot.gif)
 
 
 </p>
