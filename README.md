@@ -54,7 +54,7 @@
 
 </p>
 
-<div align="left">
+<div align="center">
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224500.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
 
@@ -81,12 +81,8 @@ $\text{\color{#B5C900}{♞}}$ <a href="https://github.com/hwobae" style="color: 
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/7a340677f251f40c40e017b50b7055e9df2c0720.png)
 
-</p>
-
-<div align="right">
-
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224418.png" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚!}}$
+$\text{\color{#a50000}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
 </p>
