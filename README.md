@@ -1,8 +1,19 @@
+<!---
+    Hi
+    If you're reading this , feel free to take some samples from here for the coding stuff 
+    I suggest not to copy literally everything or take some images here and claim it as yours
+    My style are almost simplistic so there's nothing to admire here
+</!-->
+
 <div align="center">
 
 <img width="600" height="300" alt="spiffo n flashlight" src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
 
 </p>
+
+<!---
+    Introductions
+</!-->
 
 <div align="left">
 
@@ -31,6 +42,10 @@
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Users can nominate from multiple medias/categories if not problematic.}}$
 
+<!---
+    Categories 
+</!-->
+
 <div align="center">
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/184fc1780aba791245035c5705422212.jpg)
@@ -42,6 +57,8 @@
 <div align="left">
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224500.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
+
+placeholder
 
 </p>
 
@@ -56,6 +73,8 @@
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224529.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled299.png" />
 
+$\text{\color{#B5C900}{♞}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠 [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
+
 </p>
 
 <div align="center">
@@ -67,5 +86,7 @@
 <div align="right">
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224418.png" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
+
+placeholder 
 
 </p>
