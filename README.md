@@ -87,6 +87,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/HXTERICRANZZ" style="c
 
 $\text{\color{#FFDC19}{ଘ(੭∗ˊᵕˋ)੭∗}}$ <a href="https://github.com/l0veis4ika" style="color: #FFDC19;">@𝐥𝟎𝐯𝐞𝐢𝐬𝟒𝐢𝐤𝐚</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚 𝐔𝐫𝐨𝐬𝐡𝐢𝐦𝐢𝐲𝐚! [𝐔𝐦𝐢𝐧𝐞𝐤𝐨 𝐍𝐨 𝐍𝐚𝐤𝐮 𝐊𝐨𝐫𝐨 𝐍𝐢]}}$
 
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/RottenPlate" style="color: #FFDC19;">@𝐑𝐨𝐭𝐭𝐞𝐧𝐏𝐥𝐚𝐭𝐞</a>$\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐚𝐱𝐰𝐞𝐥𝐥! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
