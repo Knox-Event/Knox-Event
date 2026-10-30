@@ -58,6 +58,9 @@
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224500.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
 
+$\text{\color{#A82020}{♘}}$ <a href="https://github.com/mrfishsandwhich">@𝐦𝐫𝐟𝐢𝐬𝐡𝐬𝐚𝐧𝐝𝐰𝐡𝐢𝐜𝐡</a> $\text{\color{#B52B24}{𝐢𝐬} \color{#C43E29}{𝐊𝐧𝐨𝐱} \color{#D05B32}{𝐄𝐯𝐞𝐧𝐭'}\color{#B8793D}{𝐬} \color{#A36F3C}{𝐋𝐨𝐮𝐢𝐬!} \color{#754D32}{[𝐋𝐞𝐟𝐭} \color{#51372C}{𝟒 𝐃𝐞𝐚𝐝]}}$
+
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚![𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$
