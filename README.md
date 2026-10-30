@@ -36,6 +36,8 @@
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose another. First come, first serve.}}$
 
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the list do tell me, incase I overlooked.}}$
+
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Do not be upset when your character are taken already, zombies still wants u trust me}}$
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Same username can only choose one category + 1 or 2 characters/medias. You can nominate more than 1 username for a friend.}}$
