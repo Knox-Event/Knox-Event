@@ -82,7 +82,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/nereherrman" style="co
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/screworangeslugs" style="color: #FFDC19;">@𝐬𝐜𝐫𝐞𝐰𝐨𝐫𝐚𝐧𝐠𝐞𝐬𝐥𝐮𝐠𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐞𝐰𝐛𝐢𝐞! [𝐇𝐨𝐨𝐩𝐬 𝐚𝐧𝐝 𝐘𝐨𝐲𝐨]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 & 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] & 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 & 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] + 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -105,7 +105,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠! [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] & 𝐇𝐢𝐥𝐝𝐚! [𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚! [𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
 
@@ -149,7 +149,7 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 
 $\text{\color{#a50000}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/T0RAX" style="color: #B5C900;">@𝐓𝟎𝐑𝐀𝐗</a> $\text{\color{#a50000}{𝐢𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] & 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭] + 𝐅𝐚𝐯𝐨𝐫𝐢𝐭𝐞 𝐂𝐨𝐥𝐨𝐫 𝐢𝐬 𝐑𝐞𝐝!}}$
+$\text{\color{#a50000}{†}}$ <a href="https://github.com/T0RAX" style="color: #B5C900;">@𝐓𝟎𝐑𝐀𝐗</a> $\text{\color{#a50000}{𝐢𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] & 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$
 
 $\text{\color{#a50000}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 ! [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
 
