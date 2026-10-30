@@ -162,36 +162,36 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224418.png" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
-$\text{\color{#a50000}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
+$\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#a50000}{𝐢𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 ! [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 ! [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/Blame-John" style="color: #B5C900;">@𝐁𝐥𝐚𝐦𝐞-𝐉𝐨𝐡𝐧</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐞𝐝𝐥𝐞𝐭𝐬𝐤𝐲! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/Blame-John" style="color: #B5C900;">@𝐁𝐥𝐚𝐦𝐞-𝐉𝐨𝐡𝐧</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐞𝐝𝐥𝐞𝐭𝐬𝐤𝐲! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/Senjurochistic" style="color: #B5C900;">@𝐒𝐞𝐧𝐣𝐮𝐫𝐨𝐜𝐡𝐢𝐬𝐭𝐢𝐜</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐞𝐧𝐣𝐮𝐫𝐨 𝐑𝐞𝐧𝐠𝐨𝐤𝐮! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/Senjurochistic" style="color: #B5C900;">@𝐒𝐞𝐧𝐣𝐮𝐫𝐨𝐜𝐡𝐢𝐬𝐭𝐢𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐞𝐧𝐣𝐮𝐫𝐨 𝐑𝐞𝐧𝐠𝐨𝐤𝐮! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/AutopsiedGore" style="color: #B5C900;">@𝐀𝐮𝐭𝐨𝐩𝐬𝐢𝐞𝐝𝐆𝐨𝐫𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐠𝐮𝐫𝐨 𝐁𝐚𝐧𝐚𝐢! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/AutopsiedGore" style="color: #B5C900;">@𝐀𝐮𝐭𝐨𝐩𝐬𝐢𝐞𝐝𝐆𝐨𝐫𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐠𝐮𝐫𝐨 𝐁𝐚𝐧𝐚𝐢! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/sw33tsug4rcookie" style="color: #B5C900;">@𝐬𝐰𝟑𝟑𝐭𝐬𝐮𝐠𝟒𝐫𝐜𝐨𝐨𝐤𝐢𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐆𝐢𝐧𝐠𝐞𝐫! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/sw33tsug4rcookie" style="color: #B5C900;">@𝐬𝐰𝟑𝟑𝐭𝐬𝐮𝐠𝟒𝐫𝐜𝐨𝐨𝐤𝐢𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐆𝐢𝐧𝐠𝐞𝐫! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #B5C900;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #B5C900;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/DocHale" style="color: #B5C900;">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/DocHale" style="color: #B5C900;">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/d0ombringer" style="color: #B5C900;">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/d0ombringer" style="color: #B5C900;">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/cobblebob" style="color: #B5C900;">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/cobblebob" style="color: #B5C900;">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚! [𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚! [𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/sicklyrose" style="color: #B5C900;">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/sicklyrose" style="color: #B5C900;">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]}}$
 
-$\text{\color{#a50000}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
+$\text{\color{#f80202}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
