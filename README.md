@@ -101,6 +101,10 @@ $\text{\color{#53BB95}{✮}}$ <a href="https://github.com/pawzu" style="color: #
 
 $\text{\color{#FFDC19}{꒰ 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 𝐓𝐡𝐢𝐞𝐟 ꒱ ˖ }}$ <a href="https://github.com/rainedscythe" style="color: #FFDC19;">@𝐫𝐚𝐢𝐧𝐞𝐝𝐬𝐜𝐲𝐭𝐡𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐮𝐠𝐨 𝐕𝐥𝐚𝐝! [𝐙𝐞𝐧𝐥𝐞𝐬𝐬 𝐙𝐨𝐧𝐞 𝐙𝐞𝐫𝐨]}}$
 
+$\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style="color: #FFDC19;">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞! [𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠] 𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -146,9 +150,9 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/juliekoctavia" style="
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/engelchi" style="color: #B5C900;">@𝐞𝐧𝐠𝐞𝐥𝐜𝐡𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐭𝐬𝐮𝐤𝐢! [𝐃𝐃𝐋𝐂]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#718B9B}{☣}}$ <a href="https://github.com/TrenchDogs">@𝐓𝐫𝐞𝐧𝐜𝐡𝐃𝐨𝐠𝐬</a> $\text{\color{#718B9B}{𝐢𝐬} \color{#778F9D}{𝐊𝐧𝐨𝐱} \color{#8094A0}{𝐄𝐯𝐞𝐧𝐭'}\color{#8999A3}{𝐬} \color{#929DA4}{𝐂𝐚𝐫𝐫𝐢𝐞!} \color{#89949D}{[𝐄𝐫𝐬𝐚𝐭𝐳]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#66d9bf}{⨂}}$ <a href="https://github.com/5P-25" style="color: #66d9bf;">@𝟓𝐏-𝟐𝟓</a> $\text{\color{#66d9bf}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐈𝐕𝐄 𝐏𝐄𝐁𝐁𝐋𝐄𝐒! [𝐑𝐀𝐈𝐍 𝐖𝐎𝐑𝐋𝐃]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
