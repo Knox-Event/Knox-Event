@@ -82,7 +82,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/nereherrman" style="co
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/screworangeslugs" style="color: #FFDC19;">@𝐬𝐜𝐫𝐞𝐰𝐨𝐫𝐚𝐧𝐠𝐞𝐬𝐥𝐮𝐠𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐞𝐰𝐛𝐢𝐞! [𝐇𝐨𝐨𝐩𝐬 𝐚𝐧𝐝 𝐘𝐨𝐲𝐨]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 & 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] + 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] + 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -125,7 +125,7 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/wifiesh" style="color:
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/BetrayedNotes" style="color: #B5C900;">@𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝𝐍𝐨𝐭𝐞𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝 𝟏𝐱𝟏𝐱𝟏𝐱𝟏! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Ham-milton" style="color: #B5C900;">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐆𝐮𝐭𝐬 & 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Ham-milton" style="color: #B5C900;">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/juliekoctavia" style="color: #B5C900;">@𝐣𝐮𝐥𝐢𝐞𝐤𝐨𝐜𝐭𝐚𝐯𝐢𝐚</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐠𝐮𝐫𝐮 𝐆𝐞𝐭𝐨! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
