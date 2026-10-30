@@ -29,14 +29,14 @@
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored. Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for other additional stuff}}$ <a href="https://knoxevent.atabook.org">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled303.png" alt="report" height=“50” width="150">
 
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the list do tell me in the atabook, incase I overlooked.}}$
+
   ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not spam my inbox kindly thx}}$ <a href="https://github.com/hwobae">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
 
 <img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029222623.png" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose another. First come, first serve.}}$
-
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the list do tell me, incase I overlooked.}}$
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Do not be upset when your character are taken already, zombies still wants u trust me}}$
 
