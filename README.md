@@ -83,6 +83,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/screworangeslugs" styl
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] + 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$
 
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/HXTERICRANZZ" style="color: #FFDC19;">@𝐇𝐗𝐓𝐄𝐑𝐈𝐂𝐑𝐀𝐍𝐙𝐙</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐨𝐤𝐮!}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -126,7 +128,7 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Ham-milton" style="col
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/juliekoctavia" style="color: #B5C900;">@𝐣𝐮𝐥𝐢𝐞𝐤𝐨𝐜𝐭𝐚𝐯𝐢𝐚</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐠𝐮𝐫𝐮 𝐆𝐞𝐭𝐨! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/engelchi" style="color: #B5C900;">@𝐞𝐧𝐠𝐞𝐥𝐜𝐡𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐭𝐬𝐮𝐤𝐢! [𝐃𝐃𝐋𝐂]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -170,7 +172,7 @@ $\text{\color{#a50000}{†}}$ <a href="https://github.com/cobblebob" style="colo
 
 $\text{\color{#a50000}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚! [𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬]}}$
 
-$\text{\color{#a50000}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#a50000}{†}}$ <a href="https://github.com/sicklyrose" style="color: #B5C900;">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]}}$
 
 $\text{\color{#a50000}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@placeholder</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
