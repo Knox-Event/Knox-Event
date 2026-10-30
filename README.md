@@ -128,7 +128,7 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/CHROMAKOPlA" style="co
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/biteofme" style="color: #B5C900;">@𝐛𝐢𝐭𝐞𝐨𝐟𝐦𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐥𝐨𝐞 𝐏𝐫𝐢𝐜𝐞! [𝐋𝐢𝐟𝐞 𝐢𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]}}$
 
-$\text{\color{#8062B5}{☯}}$ <a href="https://github.com/wifiesh">@𝐰𝐢𝐟𝐢𝐞𝐬𝐡</a> $\text{\color{#8062B5}{𝐢𝐬} \color{#795BAF}{𝐊𝐧𝐨𝐱} \color{#7354A9}{𝐄𝐯𝐞𝐧𝐭'}\color{#7953A5}{𝐬} \color{#8156A2}{𝐖𝐢𝐟𝐢𝐞𝐬!} \color{#78509B}{[𝐔𝐔𝐒𝐌𝐏]}}$
+$\text{\color{#7654A8}{☯}}$ <a href="https://github.com/wifiesh">@𝐰𝐢𝐟𝐢𝐞𝐬𝐡</a> $\text{\color{#7654A8}{𝐢𝐬} \color{#8059A9}{𝐊𝐧𝐨𝐱} \color{#895FAB}{𝐄𝐯𝐞𝐧𝐭'}\color{#9163AC}{𝐬} \color{#9964AA}{𝐖𝐢𝐟𝐢𝐞𝐬} \color{#9E65A7}{𝐀𝐧𝐝} \color{#A064A4}{𝐏𝐚𝐫𝐫𝐨𝐭𝐱𝟐!} \color{#965B9D}{[𝐔𝐔𝐒𝐌𝐏]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/BetrayedNotes" style="color: #B5C900;">@𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝𝐍𝐨𝐭𝐞𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝 𝟏𝐱𝟏𝐱𝟏𝐱𝟏! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
