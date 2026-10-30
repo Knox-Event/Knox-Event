@@ -89,7 +89,7 @@ $\text{\color{#FFDC19}{ଘ(੭∗ˊᵕˋ)੭∗}}$ <a href="https://github.com/l
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/RottenPlate" style="color: #FFDC19;">@𝐑𝐨𝐭𝐭𝐞𝐧𝐏𝐥𝐚𝐭𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐚𝐱𝐰𝐞𝐥𝐥! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Flayedrocker" style="color: #FFDC19;">@𝐅𝐥𝐚𝐲𝐞𝐝𝐫𝐨𝐜𝐤𝐞𝐫</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥 𝐇𝐞𝐢𝐬𝐞𝐧𝐛𝐞𝐫𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥 𝟖]}}$
+$\text{\color{#B66A49}{⛓}}$ <a href="https://github.com/Flayedrocker">@𝐅𝐥𝐚𝐲𝐞𝐝𝐫𝐨𝐜𝐤𝐞𝐫</a> $\text{\color{#A65B3F}{𝐢𝐬} \color{#B66A49}{𝐊𝐧𝐨𝐱} \color{#C17A54}{𝐄𝐯𝐞𝐧𝐭'}\color{#AD7857}{𝐬} \color{#987052}{𝐊𝐚𝐫𝐥} \color{#80634D}{𝐇𝐞𝐢𝐬𝐞𝐧𝐛𝐞𝐫𝐠!} \color{#695648}{[𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭} \color{#51483F}{𝐄𝐯𝐢𝐥} \color{#393936}{𝟖]}}$
 
 $\text{\color{#B9E8F5}{𝐀𝐍𝐃𝐑𝐎𝐈𝐃 〇}}$ <a href="https://github.com/AndroidSentByCyberLife">@𝐀𝐧𝐝𝐫𝐨𝐢𝐝𝐒𝐞𝐧𝐭𝐁𝐲𝐂𝐲𝐛𝐞𝐫𝐋𝐢𝐟𝐞</a> $\text{\color{#B9E8F5}{𝐢𝐬} \color{#A9D9E9}{𝐊𝐧𝐨𝐱} \color{#91C6D9}{𝐄𝐯𝐞𝐧𝐭'}\color{#A0BFCB}{𝐬} \color{#91AEBB}{𝐂𝐨𝐧𝐧𝐨𝐫!} \color{#718F9F}{[𝐃𝐞𝐭𝐫𝐨𝐢𝐭:} \color{#637D8C}{𝐁𝐞𝐜𝐨𝐦𝐞} \color{#526B7A}{𝐇𝐮𝐦𝐚𝐧]}}$
 
