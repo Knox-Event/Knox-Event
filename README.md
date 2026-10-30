@@ -38,13 +38,9 @@
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Do not be upset when your character are taken already, zombies still wants u trust me}}$
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{SAME user can only choose ONE category + but you can have max 2 characters/medias , multiple accounts being nominated are acceptable}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Same username can only choose one category + 1 or 2 characters/medias. You can nominate more than 1 username for a friend.}}$
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{For example: @potato1 and @sweetpotato2 wants to be under the Human category, yes that's fine. However, @potato1 wants to be in both under the Human and Half-infected category, then no so just choose one category.}}$
-
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Adding problematic medias are not tolerated.}}$
-
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Users can nominate from multiple medias/categories if not problematic.}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Adding problematic medias are not tolerated, for e.g tcoaal for obvious one.}}$
 
 <!---
     Categories , Survivors
