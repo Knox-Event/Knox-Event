@@ -182,7 +182,7 @@ $\text{\color{#a50000}{†}}$ <a href="https://github.com/Chemicalshot" style="c
 
 $\text{\color{#a50000}{†}}$ <a href="https://github.com/sicklyrose" style="color: #B5C900;">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]}}$
 
-$\text{\color{#a50000}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞![𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
+$\text{\color{#a50000}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
 $\text{\color{#a50000}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#a50000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
