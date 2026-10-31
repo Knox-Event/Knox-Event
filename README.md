@@ -107,7 +107,11 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color:
 
 $\text{\color{#19A52A}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #19A52A;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#19A52A}{𝐢𝐬} \color{#299B1D}{𝐊𝐧𝐨𝐱} \color{#559514}{𝐄𝐯𝐞𝐧𝐭'}\color{#858C10}{𝐬} \color{#B77E0C}{𝐁𝐚𝐤𝐮𝐠𝐨} \color{#DB7810}{𝐊𝐚𝐭𝐬𝐮𝐤𝐢!} \color{#FF781C}{[𝐌𝐇𝐀]}}$
 
-$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫 𝐃𝐚𝐭𝐚 𝐀𝐧𝐝 𝐋𝐨𝐫𝐞! [𝐒𝐭𝐚𝐫 𝐓𝐫𝐞𝐤]}}$
+$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬} \color{#E8C51B}{𝐊𝐧𝐨𝐱} \color{#C6AD25}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#A99632}{𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫} \color{#8C8540}{𝐃𝐚𝐭𝐚} \color{#B39A25}{𝐀𝐧𝐝} \color{#D9B51B}{𝐋𝐨𝐫𝐞!} \color{#FFDC19}{[𝐒𝐭𝐚𝐫 𝐓𝐫𝐞𝐤]}}$
+
+$\text{\color{#A81727}{✮}}$ <a href="https://github.com/08clipse" style="color: #A81727;">@𝟎𝟖𝐜𝐥𝐢𝐩𝐬𝐞</a> $\text{\color{#A81727}{𝐢𝐬} \color{#BD1D2D}{𝐊𝐧𝐨𝐱} \color{#D12A32}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#C02A36}{𝐎𝐬𝐚𝐦𝐮} \color{#A91F32}{𝐃𝐚𝐳𝐚𝐢!} \color{#781B30}{[𝐁𝐮𝐧𝐠𝐨𝐮} \color{#581A2B}{𝐒𝐭𝐫𝐚𝐲} \color{#781B30}{𝐃𝐨𝐠𝐬]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/poisonedritual" style="color: #FFDC19;">@𝐩𝐨𝐢𝐬𝐨𝐧𝐞𝐝𝐫𝐢𝐭𝐮𝐚𝐥</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐨 𝐓𝐢𝐦𝐞! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -131,6 +135,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠! [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚! [𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$
+
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/UNLEASH-NOLI" style="color: #B5C900;">@𝐔𝐍𝐋𝐄𝐀𝐒𝐇-𝐍𝐎𝐋𝐈</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐨𝐥𝐢! [𝐑𝐎𝐁𝐋𝐎𝐗]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
 
@@ -161,7 +167,6 @@ $\text{\color{#66d9bf}{⨂}}$ <a href="https://github.com/5P-25" style="color: #
 $\text{\color{#B5C900}{ ༉‧₊˚✧ }}$ <a href="https://github.com/rarepiplash" style="color: #B5C900;">@𝐫𝐚𝐫𝐞𝐩𝐢𝐩𝐥𝐚𝐬𝐡</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐫𝐞 𝐏𝐢𝐩𝐥𝐚𝐬𝐡! [𝐌𝐒𝐌]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
-
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -216,7 +221,7 @@ $\text{\color{#F04432}{†}}$ <a href="https://github.com/bigguykoi">@𝐛𝐢�
 
 $\text{\color{#ab2b2b}{🌈}}$ <a href="https://github.com/Sugar-coatedtoast" style="color: #ab2b2b;">@𝐒𝐮𝐠𝐚𝐫-𝐜𝐨𝐚𝐭𝐞𝐝𝐭𝐨𝐚𝐬𝐭</a> $\text{\color{#ab2b2b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐩𝐨𝐤𝐞𝐢𝐬𝐡𝐞𝐫𝐞! [𝐔𝐔𝐬𝐦𝐩]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮! [𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
