@@ -113,6 +113,8 @@ $\text{\color{#A81727}{✮}}$ <a href="https://github.com/08clipse" style="color
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/poisonedritual" style="color: #FFDC19;">@𝐩𝐨𝐢𝐬𝐨𝐧𝐞𝐝𝐫𝐢𝐭𝐮𝐚𝐥</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐨 𝐓𝐢𝐦𝐞! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
+$\text{\color{#FFD73F}{𐔌˙˖°🦊⋆˚꒱ ˖}}$ <a href="https://github.com/LUNARPOOLS" style="color: #FFD73F;">@𝐋𝐔𝐍𝐀𝐑𝐏𝐎𝐎𝐋𝐒</a> $\text{\color{#FFD73F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐥𝐞𝐬 "𝐓𝐚𝐢𝐥𝐬" 𝐏𝐫𝐨𝐰𝐞𝐫! [𝐓𝐡𝐞 𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
