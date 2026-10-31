@@ -7,7 +7,7 @@
 
 <div align="center">
 
-<img width="600" height="300" alt="spiffo n flashlight" src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
+<img width="700" height="400" alt="dont be a hero." src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
 
 </p>
 
@@ -17,7 +17,7 @@
 
 <div align="left">
 
-<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302%20(1).png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
+<img width="100" height="100" src="https://pzwiki.net/w/images/3/33/FighterSpiffo.png?20240602230135" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid. Knox-Event is a fan-run community and nomination account.}}$
 
@@ -34,7 +34,7 @@
   ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not spam my inbox kindly thx}}$ <a href="https://github.com/hwobae">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
 
-<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029222623.png" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
+<img width="80" height="100" src="https://pzwiki.net/w/images/2/2a/Spiffoguard_transparent1.png?20240626215029" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose another. First come, first serve.}}$
 
@@ -50,7 +50,7 @@
 
 <div align="center">
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/184fc1780aba791245035c5705422212.jpg)
+![](https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/108600/e0dd37d69051f7da85896d11027ab018d23893fa/ss_e0dd37d69051f7da85896d11027ab018d23893fa.jpg)
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/81ff17a79b9591ed2a5647801817b7d3482f1080.png)
 
@@ -58,7 +58,7 @@
 
 <div align="center">
 
-<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224500.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
+<img width="100" height="100" src="https://pzwiki.net/w/images/d/d8/SpiffoSurvivor.png?20240630220541" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
 
 $\text{\color{#A82020}{♘}}$ <a href="https://github.com/mrfishsandwhich">@𝐦𝐫𝐟𝐢𝐬𝐡𝐬𝐚𝐧𝐝𝐰𝐡𝐢𝐜𝐡</a> $\text{\color{#B52B24}{𝐢𝐬} \color{#C43E29}{𝐊𝐧𝐨𝐱} \color{#D05B32}{𝐄𝐯𝐞𝐧𝐭'}\color{#B8793D}{𝐬} \color{#A36F3C}{𝐋𝐨𝐮𝐢𝐬!} \color{#754D32}{[𝐋𝐞𝐟𝐭} \color{#51372C}{𝟒 𝐃𝐞𝐚𝐝]}}$
 
@@ -125,6 +125,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 
 <div align="center">
 
+![](https://shared.fastly.steamstatic.com/store_item_assets/steam/apps/108600/ss_d80677c526a1c9494a7147189e52fbf438f0a9ca.jpg)
+
 ![](https://file.garden/ZroW4OcqSGtS0a5j/7288400f065abd1cc6d3c00eee25d637f0b7fdb2.png)
 
 </p>
@@ -132,7 +134,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 
 <div align="center">
 
-<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224529.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled299.png" />
+<img width="70" height="100" src="https://pzwiki.net/w/images/a/ae/SpiffoPanic.png?20260523070738" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled299.png" />
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠! [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
 
@@ -181,9 +183,11 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 
 <div align="center">
 
+![](https://i.redd.it/58u2dawq9snh1.jpg)
+
 ![](https://file.garden/ZroW4OcqSGtS0a5j/7a340677f251f40c40e017b50b7055e9df2c0720.png)
 
-<img width="100" height="100" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled302_20261029224418.png" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
+<img width="100" height="100" src="https://pzwiki.net/w/images/3/3e/Moodle_Icon_Zombie.png?20230518201408" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
