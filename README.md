@@ -105,9 +105,9 @@ $\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color: #FFDC19;">@𝐤𝐢𝐬𝐬𝐛𝐨𝐰</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐚𝐫𝐥 𝐆𝐫𝐢𝐦𝐞𝐬! [𝐓𝐡𝐞 𝐖𝐚𝐥𝐤𝐢𝐧𝐠 𝐃𝐞𝐚𝐝]}}$
 
-$\text{\color{#FF8A1C}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #FFDC19;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#FF8A1C}{𝐢𝐬} \color{#F59A19}{𝐊𝐧𝐨𝐱} \color{#E5A91A}{𝐄𝐯𝐞𝐧𝐭'}\color{#D0B51B}{𝐬} \color{#B5BC1C}{𝐁𝐚𝐤𝐮𝐠𝐨} \color{#91B923}{𝐊𝐚𝐭𝐬𝐮𝐤𝐢!} \color{#65A92B}{[𝐌𝐇𝐀]}}$
+$\text{\color{#19A52A}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #19A52A;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#19A52A}{𝐢𝐬} \color{#299B1D}{𝐊𝐧𝐨𝐱} \color{#559514}{𝐄𝐯𝐞𝐧𝐭'}\color{#858C10}{𝐬} \color{#B77E0C}{𝐁𝐚𝐤𝐮𝐠𝐨} \color{#DB7810}{𝐊𝐚𝐭𝐬𝐮𝐤𝐢!} \color{#FF781C}{[𝐌𝐇𝐀]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫 𝐃𝐚𝐭𝐚 𝐀𝐧𝐝 𝐋𝐨𝐫𝐞! [𝐒𝐭𝐚𝐫 𝐓𝐫𝐞𝐤]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
