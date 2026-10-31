@@ -107,7 +107,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color:
 
 $\text{\color{#19A52A}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #19A52A;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#19A52A}{𝐢𝐬} \color{#299B1D}{𝐊𝐧𝐨𝐱} \color{#559514}{𝐄𝐯𝐞𝐧𝐭'}\color{#858C10}{𝐬} \color{#B77E0C}{𝐁𝐚𝐤𝐮𝐠𝐨} \color{#DB7810}{𝐊𝐚𝐭𝐬𝐮𝐤𝐢!} \color{#FF781C}{[𝐌𝐇𝐀]}}$
 
-$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬} \color{#EAC91C}{𝐊𝐧𝐨𝐱} \color{#D0B51F}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#B09D25}{𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫} \color{#897E2D}{𝐃𝐚𝐭𝐚} \color{#625E35}{𝐀𝐧𝐝} \color{#49463A}{𝐋𝐨𝐫𝐞!} \color{#62572C}{[𝐒𝐭𝐚𝐫} \color{#FFDC19}{𝐓𝐫𝐞𝐤]}}$
+$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬} \color{#EAC91C}{𝐊𝐧𝐨𝐱} \color{#D0B51F}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#B09D25}{𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫} \color{#897E2D}{𝐃𝐚𝐭𝐚} \color{#625E35}{𝐀𝐧𝐝} \color{#49463A}{𝐋𝐨𝐫𝐞!} \color{#62543A}{[𝐒𝐭𝐚𝐫} \color{#9B822A}{𝐓𝐫𝐞𝐤]}}$
 
 $\text{\color{#A81727}{✮}}$ <a href="https://github.com/08clipse" style="color: #A81727;">@𝟎𝟖𝐜𝐥𝐢𝐩𝐬𝐞</a> $\text{\color{#A81727}{𝐢𝐬} \color{#BD1D2D}{𝐊𝐧𝐨𝐱} \color{#D12A32}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#C02A36}{𝐎𝐬𝐚𝐦𝐮} \color{#A91F32}{𝐃𝐚𝐳𝐚𝐢!} \color{#781B30}{[𝐁𝐮𝐧𝐠𝐨𝐮} \color{#581A2B}{𝐒𝐭𝐫𝐚𝐲} \color{#781B30}{𝐃𝐨𝐠𝐬]}}$
 
@@ -219,7 +219,7 @@ $\text{\color{#C91E24}{𐔌 🌙 🎀 ꒱ ˖}}$ <a href="https://github.com/forg
 
 $\text{\color{#f80202}{♡}}$ <a href="https://github.com/danznc" style="color: #B5C900;">@𝐝𝐚𝐧𝐳𝐧𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]}}$
 
-$\text{\color{#F04432}{†}}$ <a href="https://github.com/bigguykoi">@𝐛𝐢𝐠𝐠𝐮𝐲𝐤𝐨𝐢</a> $\text{\color{#F04432}{𝐢𝐬} \color{#E94B35}{𝐊𝐧𝐨𝐱} \color{#DE5138}{𝐄𝐯𝐞𝐧𝐭'}\color{#D05A3D}{𝐬} \color{#C26443}{𝐓𝐨𝐧𝐲} \color{#B36A49}{𝐒𝐭𝐚𝐫𝐤!} \color{#A5684C}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
+$\text{\color{#E52D32}{†}}$ <a href="https://github.com/bigguykoi" style="color: #E52D32;">@𝐛𝐢𝐠𝐠𝐮𝐲𝐤𝐨𝐢</a> $\text{\color{#E52D32}{𝐢𝐬} \color{#D92A30}{𝐊𝐧𝐨𝐱} \color{#CC252F}{𝐄𝐯𝐞𝐧𝐭'}\color{#BA2530}{𝐬} \color{#A92330}{𝐓𝐨𝐧𝐲} \color{#941F30}{𝐒𝐭𝐚𝐫𝐤!} \color{#791D32}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
 
 $\text{\color{#ab2b2b}{🌈}}$ <a href="https://github.com/Sugar-coatedtoast" style="color: #ab2b2b;">@𝐒𝐮𝐠𝐚𝐫-𝐜𝐨𝐚𝐭𝐞𝐝𝐭𝐨𝐚𝐬𝐭</a> $\text{\color{#ab2b2b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐩𝐨𝐤𝐞𝐢𝐬𝐡𝐞𝐫𝐞! [𝐔𝐔𝐬𝐦𝐩]}}$
 
