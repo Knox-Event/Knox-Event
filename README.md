@@ -89,7 +89,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/HXTERICRANZZ" style="c
 
 $\text{\color{#FFDC19}{ଘ(੭∗ˊᵕˋ)੭∗}}$ <a href="https://github.com/l0veis4ika" style="color: #FFDC19;">@𝐥𝟎𝐯𝐞𝐢𝐬𝟒𝐢𝐤𝐚</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚 𝐔𝐫𝐨𝐬𝐡𝐢𝐦𝐢𝐲𝐚! [𝐔𝐦𝐢𝐧𝐞𝐤𝐨 𝐍𝐨 𝐍𝐚𝐤𝐮 𝐊𝐨𝐫𝐨 𝐍𝐢]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/RottenPlate" style="color: #FFDC19;">@𝐑𝐨𝐭𝐭𝐞𝐧𝐏𝐥𝐚𝐭𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐚𝐱𝐰𝐞𝐥𝐥! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/RottenPlate" style="color: #FFDC19;">@𝐑𝐨𝐭𝐭𝐞𝐧𝐏𝐥𝐚𝐭𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐚𝐱𝐰𝐞𝐥𝐥! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
 $\text{\color{#B66A49}{⛓}}$ <a href="https://github.com/Flayedrocker">@𝐅𝐥𝐚𝐲𝐞𝐝𝐫𝐨𝐜𝐤𝐞𝐫</a> $\text{\color{#A65B3F}{𝐢𝐬} \color{#B66A49}{𝐊𝐧𝐨𝐱} \color{#C17A54}{𝐄𝐯𝐞𝐧𝐭'}\color{#AD7857}{𝐬} \color{#987052}{𝐊𝐚𝐫𝐥} \color{#80634D}{𝐇𝐞𝐢𝐬𝐞𝐧𝐛𝐞𝐫𝐠!} \color{#695648}{[𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭} \color{#51483F}{𝐄𝐯𝐢𝐥} \color{#393936}{𝟖]}}$
 
@@ -102,6 +102,10 @@ $\text{\color{#53BB95}{✮}}$ <a href="https://github.com/pawzu" style="color: #
 $\text{\color{#FFDC19}{꒰ 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 𝐓𝐡𝐢𝐞𝐟 ꒱ ˖ }}$ <a href="https://github.com/rainedscythe" style="color: #FFDC19;">@𝐫𝐚𝐢𝐧𝐞𝐝𝐬𝐜𝐲𝐭𝐡𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐮𝐠𝐨 𝐕𝐥𝐚𝐝! [𝐙𝐞𝐧𝐥𝐞𝐬𝐬 𝐙𝐨𝐧𝐞 𝐙𝐞𝐫𝐨]}}$
 
 $\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style="color: #FFDC19;">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞! [𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠] 𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color: #FFDC19;">@𝐤𝐢𝐬𝐬𝐛𝐨𝐰</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐚𝐫𝐥 𝐆𝐫𝐢𝐦𝐞𝐬! [𝐓𝐡𝐞 𝐖𝐚𝐥𝐤𝐢𝐧𝐠 𝐃𝐞𝐚𝐝]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #FFDC19;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐚𝐤𝐮𝐠𝐨 𝐊𝐚𝐭𝐬𝐮𝐤𝐢! [𝐌𝐇𝐀]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -154,7 +158,13 @@ $\text{\color{#718B9B}{☣}}$ <a href="https://github.com/TrenchDogs">@𝐓𝐫�
 
 $\text{\color{#66d9bf}{⨂}}$ <a href="https://github.com/5P-25" style="color: #66d9bf;">@𝟓𝐏-𝟐𝟓</a> $\text{\color{#66d9bf}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐈𝐕𝐄 𝐏𝐄𝐁𝐁𝐋𝐄𝐒! [𝐑𝐀𝐈𝐍 𝐖𝐎𝐑𝐋𝐃]}}$
 
+$\text{\color{#B5C900}{ ༉‧₊˚✧ }}$ <a href="https://github.com/rarepiplash" style="color: #B5C900;">@𝐫𝐚𝐫𝐞𝐩𝐢𝐩𝐥𝐚𝐬𝐡</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐫𝐞 𝐏𝐢𝐩𝐥𝐚𝐬𝐡! [𝐌𝐒𝐌]}}$
+
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+
+
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+
 
 </p>
 
@@ -198,7 +208,13 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/sicklyrose" style="col
 
 $\text{\color{#f80202}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
-$\text{\color{#D92727}{𐔌 🌙 🎀 ꒱ ˖}}$ <a href="https://github.com/forgedshadows">@𝐟𝐨𝐫𝐠𝐞𝐝𝐬𝐡𝐚𝐝𝐨𝐰𝐬</a> $\text{\color{#D92727}{𝐢𝐬} \color{#C52222}{𝐊𝐧𝐨𝐱} \color{#B51D20}{𝐄𝐯𝐞𝐧𝐭'}\color{#A3181D}{𝐬} \color{#90151B}{𝐑𝐮𝐦𝐢𝐚!} \color{#741318}{[𝐓𝐨𝐮𝐡𝐨𝐮} \color{#541116}{𝐏𝐫𝐨𝐣𝐞𝐜𝐭]}}$
+$\text{\color{#C91E24}{𐔌 🌙 🎀 ꒱ ˖}}$ <a href="https://github.com/forgedshadows">@𝐟𝐨𝐫𝐠𝐞𝐝𝐬𝐡𝐚𝐝𝐨𝐰𝐬</a> $\text{\color{#C91E24}{𝐢𝐬} \color{#B51A20}{𝐊𝐧𝐨𝐱} \color{#A3161D}{𝐄𝐯𝐞𝐧𝐭'}\color{#8E141B}{𝐬} \color{#761218}{𝐑𝐮𝐦𝐢𝐚!} \color{#5C1017}{[𝐓𝐨𝐮𝐡𝐨𝐮} \color{#3D0B12}{𝐏𝐫𝐨𝐣𝐞𝐜𝐭]}}$
+
+$\text{\color{#f80202}{♡}}$ <a href="https://github.com/danznc" style="color: #B5C900;">@𝐝𝐚𝐧𝐳𝐧𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]}}$
+
+$\text{\color{#F04432}{†}}$ <a href="https://github.com/bigguykoi">@𝐛𝐢𝐠𝐠𝐮𝐲𝐤𝐨𝐢</a> $\text{\color{#F04432}{𝐢𝐬} \color{#E94B35}{𝐊𝐧𝐨𝐱} \color{#DE5138}{𝐄𝐯𝐞𝐧𝐭'}\color{#D05A3D}{𝐬} \color{#C26443}{𝐓𝐨𝐧𝐲} \color{#B36A49}{𝐒𝐭𝐚𝐫𝐤!} \color{#A5684C}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
+
+$\text{\color{#ab2b2b}{🌈}}$ <a href="https://github.com/Sugar-coatedtoast" style="color: #ab2b2b;">@𝐒𝐮𝐠𝐚𝐫-𝐜𝐨𝐚𝐭𝐞𝐝𝐭𝐨𝐚𝐬𝐭</a> $\text{\color{#ab2b2b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐩𝐨𝐤𝐞𝐢𝐬𝐡𝐞𝐫𝐞! [𝐔𝐔𝐬𝐦𝐩]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
