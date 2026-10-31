@@ -203,6 +203,8 @@ $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style=
 
 $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="color: #268FE8;">@𝐣𝐚𝐳𝐳𝐲𝐦𝐚𝐠𝐞</a> $\text{\color{#268FE8}{𝐢𝐬} \color{#347BCB}{𝐊𝐧𝐨𝐱} \color{#416BAE}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#405D91}{𝐇𝐮𝐧𝐭𝐞𝐫!} \color{#394E76}{[𝐋𝐞𝐟𝐭} \color{#35445F}{𝟒} \color{#303B4B}{𝐃𝐞𝐚𝐝]}}$
 
+$\text{\color{#9673B9}{＜ ♦}}$ <a href="https://github.com/doomfraid" style="color: #C0A0D8;">@𝐝𝐨𝐨𝐦𝐟𝐫𝐚𝐢𝐝</a> $\text{\color{#79518F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#563568}{𝚁𝚘𝚜𝚎}}$ $\text{\color{#A47ABF}{𝙻𝚊𝚕𝚘𝚗𝐝𝐞!}}$ $\text{\color{#76518D}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔] ＞}}$
+
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 ! [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
