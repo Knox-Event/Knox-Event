@@ -65,7 +65,7 @@ $\text{\color{#A82020}{♘}}$ <a href="https://github.com/mrfishsandwhich">@𝐦
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚![𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/eversleeping-town" style="color: #FFDC19;">@𝐞𝐯𝐞𝐫𝐬𝐥𝐞𝐞𝐩𝐢𝐧𝐠-𝐭𝐨𝐰𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐝𝐚 𝐖𝐨𝐧𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]}}$
 
@@ -75,7 +75,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/VArtfultrust" style="c
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/SONNELLINOENTHUSIAST" style="color: #FFDC19;">@𝐒𝐎𝐍𝐍𝐄𝐋𝐋𝐈𝐍𝐎𝐄𝐍𝐓𝐇𝐔𝐒𝐈𝐀𝐒𝐓</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐟𝐢𝐨𝐬𝐨! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/inhumane-me" style="color: #FFDC19;">@𝐢𝐧𝐡𝐮𝐦𝐚𝐧𝐞-𝐦𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐭𝐢𝐞 𝐁![𝐐𝐒𝐌𝐏 𝟐]}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/inhumane-me" style="color: #FFDC19;">@𝐢𝐧𝐡𝐮𝐦𝐚𝐧𝐞-𝐦𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐭𝐢𝐞 𝐁! [𝐐𝐒𝐌𝐏 𝟐]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Supreme-Angel" style="color: #FFDC19;">@𝐒𝐮𝐩𝐫𝐞𝐦𝐞-𝐀𝐧𝐠𝐞𝐥</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐚𝐛𝐫𝐢𝐞𝐥! [𝐔𝐋𝐓𝐑𝐀𝐊𝐈𝐋𝐋]}}$
 
@@ -215,7 +215,7 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/sicklyrose" style="col
 
 $\text{\color{#f80202}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
-$\text{\color{#C91E24}{𐔌 🌙 🎀 ꒱ ˖}}$ <a href="https://github.com/forgedshadows">@𝐟𝐨𝐫𝐠𝐞𝐝𝐬𝐡𝐚𝐝𝐨𝐰𝐬</a> $\text{\color{#C91E24}{𝐢𝐬} \color{#B51A20}{𝐊𝐧𝐨𝐱} \color{#A3161D}{𝐄𝐯𝐞𝐧𝐭'}\color{#8E141B}{𝐬} \color{#761218}{𝐑𝐮𝐦𝐢𝐚!} \color{#5C1017}{[𝐓𝐨𝐮𝐡𝐨𝐮} \color{#3D0B12}{𝐏𝐫𝐨𝐣𝐞𝐜𝐭]}}$
+$\text{\color{#C91E24}{𐔌 🌕🎀 ꒱ ˖}}$ <a href="https://github.com/forgedshadows">@𝐟𝐨𝐫𝐠𝐞𝐝𝐬𝐡𝐚𝐝𝐨𝐰𝐬</a> $\text{\color{#C91E24}{𝐢𝐬} \color{#B51A20}{𝐊𝐧𝐨𝐱} \color{#A3161D}{𝐄𝐯𝐞𝐧𝐭'}\color{#8E141B}{𝐬} \color{#761218}{𝐑𝐮𝐦𝐢𝐚!} \color{#5C1017}{[𝐓𝐨𝐮𝐡𝐨𝐮} \color{#3D0B12}{𝐏𝐫𝐨𝐣𝐞𝐜𝐭]}}$
 
 $\text{\color{#f80202}{♡}}$ <a href="https://github.com/danznc" style="color: #B5C900;">@𝐝𝐚𝐧𝐳𝐧𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]}}$
 
