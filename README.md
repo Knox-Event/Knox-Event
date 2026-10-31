@@ -119,7 +119,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/opioiid" style="color:
 
 $\text{\color{#32D65A}{✮}}$ <a href="https://github.com/THE-SAINT-OF-DEATH" style="color: #32D65A;">@𝐓𝐇𝐄-𝐒𝐀𝐈𝐍𝐓-𝐎𝐅-𝐃𝐄𝐀𝐓𝐇</a> $\text{\color{#32D65A}{𝐢𝐬} \color{#2BC34F}{𝐊𝐧𝐨𝐱} \color{#24AF45}{𝐄𝐯𝐞𝐧𝐭'}\color{#209D3D}{𝐬} \color{#198B38}{𝐑𝐨𝐫𝐨𝐧𝐚𝐨} \color{#147A34}{𝐙𝐨𝐫𝐨!} \color{#10682F}{[𝐎𝐧𝐞} \color{#0D572A}{𝐏𝐢𝐞𝐜𝐞]}}$
 
-$\text{\color{#FFDC19}{╲﹙ˆoˆ*﹚}}$ <a href="https://github.com/tillallareloved" style="color: #FFDC19;">@𝐭𝐢𝐥𝐥𝐚𝐥𝐥𝐚𝐫𝐞𝐥𝐨𝐯𝐞𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐫𝐜𝐞𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
+$\text{\color{#FFDC19}{╲﹙ˆoˆ *﹚}}$ <a href="https://github.com/tillallareloved" style="color: #FFDC19;">@𝐭𝐢𝐥𝐥𝐚𝐥𝐥𝐚𝐫𝐞𝐥𝐨𝐯𝐞𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐫𝐜𝐞𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
