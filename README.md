@@ -107,7 +107,7 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color:
 
 $\text{\color{#19A52A}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #19A52A;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#19A52A}{𝐢𝐬} \color{#299B1D}{𝐊𝐧𝐨𝐱} \color{#559514}{𝐄𝐯𝐞𝐧𝐭'}\color{#858C10}{𝐬} \color{#B77E0C}{𝐁𝐚𝐤𝐮𝐠𝐨} \color{#DB7810}{𝐊𝐚𝐭𝐬𝐮𝐤𝐢!} \color{#FF781C}{[𝐌𝐇𝐀]}}$
 
-$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬} \color{#E8C51B}{𝐊𝐧𝐨𝐱} \color{#C6AD25}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#A99632}{𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫} \color{#8C8540}{𝐃𝐚𝐭𝐚} \color{#B39A25}{𝐀𝐧𝐝} \color{#D9B51B}{𝐋𝐨𝐫𝐞!} \color{#FFDC19}{[𝐒𝐭𝐚𝐫 𝐓𝐫𝐞𝐤]}}$
+$\text{\color{#FFDC19}{𐔌 ♪𓍢ִ໋🎻₊ ꒱}}$ <a href="https://github.com/TheLongLongHoliday" style="color: #FFDC19;">@𝐓𝐡𝐞𝐋𝐨𝐧𝐠𝐋𝐨𝐧𝐠𝐇𝐨𝐥𝐢𝐝𝐚𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬} \color{#EBC51A}{𝐊𝐧𝐨𝐱} \color{#C7A91A}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#A58B20}{𝐂𝐨𝐦𝐦𝐚𝐧𝐝𝐞𝐫} \color{#75652A}{𝐃𝐚𝐭𝐚} \color{#A58B20}{𝐀𝐧𝐝} \color{#D5AF17}{𝐋𝐨𝐫𝐞!} \color{#FFDC19}{[𝐒𝐭𝐚𝐫 𝐓𝐫𝐞𝐤]}}$
 
 $\text{\color{#A81727}{✮}}$ <a href="https://github.com/08clipse" style="color: #A81727;">@𝟎𝟖𝐜𝐥𝐢𝐩𝐬𝐞</a> $\text{\color{#A81727}{𝐢𝐬} \color{#BD1D2D}{𝐊𝐧𝐨𝐱} \color{#D12A32}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#C02A36}{𝐎𝐬𝐚𝐦𝐮} \color{#A91F32}{𝐃𝐚𝐳𝐚𝐢!} \color{#781B30}{[𝐁𝐮𝐧𝐠𝐨𝐮} \color{#581A2B}{𝐒𝐭𝐫𝐚𝐲} \color{#781B30}{𝐃𝐨𝐠𝐬]}}$
 
