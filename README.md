@@ -115,6 +115,14 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/poisonedritual" style=
 
 $\text{\color{#FFD73F}{𐔌˙˖°🦊⋆˚꒱ ˖}}$ <a href="https://github.com/LUNARPOOLS" style="color: #FFD73F;">@𝐋𝐔𝐍𝐀𝐑𝐏𝐎𝐎𝐋𝐒</a> $\text{\color{#FFD73F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐥𝐞𝐬 "𝐓𝐚𝐢𝐥𝐬" 𝐏𝐫𝐨𝐰𝐞𝐫! [𝐓𝐡𝐞 𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$
 
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/opioiid" style="color: #FFDC19;">@𝐨𝐩𝐢𝐨𝐢𝐢𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐨𝐭 𝐏𝐚𝐧𝐭𝐬! [𝐉𝐉𝐁𝐀 𝐒𝐭𝐞𝐞𝐥 𝐁𝐚𝐥𝐥 𝐑𝐮𝐧]}}$
+
+$\text{\color{#32D65A}{✮}}$ <a href="https://github.com/THE-SAINT-OF-DEATH" style="color: #32D65A;">@𝐓𝐇𝐄-𝐒𝐀𝐈𝐍𝐓-𝐎𝐅-𝐃𝐄𝐀𝐓𝐇</a> $\text{\color{#32D65A}{𝐢𝐬} \color{#2BC34F}{𝐊𝐧𝐨𝐱} \color{#24AF45}{𝐄𝐯𝐞𝐧𝐭'}\color{#209D3D}{𝐬} \color{#198B38}{𝐑𝐨𝐫𝐨𝐧𝐚𝐨} \color{#147A34}{𝐙𝐨𝐫𝐨!} \color{#10682F}{[𝐎𝐧𝐞} \color{#0D572A}{𝐏𝐢𝐞𝐜𝐞]}}$
+
+$\text{\color{#FFDC19}{\﹙^o^*﹚}}$ <a href="https://github.com/tillallareloved" style="color: #FFDC19;">@𝐭𝐢𝐥𝐥𝐚𝐥𝐥𝐚𝐫𝐞𝐥𝐨𝐯𝐞𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐫𝐜𝐞𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -170,7 +178,7 @@ $\text{\color{#66d9bf}{⨂}}$ <a href="https://github.com/5P-25" style="color: #
 
 $\text{\color{#B5C900}{ ༉‧₊˚✧ }}$ <a href="https://github.com/rarepiplash" style="color: #B5C900;">@𝐫𝐚𝐫𝐞𝐩𝐢𝐩𝐥𝐚𝐬𝐡</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐫𝐞 𝐏𝐢𝐩𝐥𝐚𝐬𝐡! [𝐌𝐒𝐌]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#b000ff}{𐔌🐇 ꒱ ˖}}$ <a href="https://github.com/VALENTIN-RENEGADE" style="color: #b000ff;">@𝐕𝐀𝐋𝐄𝐍𝐓𝐈𝐍-𝐑𝐄𝐍𝐄𝐆𝐀𝐃𝐄</a> $\text{\color{#b000ff}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐥𝐢𝐭𝐜𝐡𝐭𝐫𝐚𝐩! [𝐅𝐍𝐀𝐅 𝐕𝐑: 𝐇𝐞𝐥𝐩 𝐖𝐚𝐧𝐭𝐞𝐝]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -192,6 +200,8 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
 $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
+
+$\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="color: #268FE8;">@𝐣𝐚𝐳𝐳𝐲𝐦𝐚𝐠𝐞</a> $\text{\color{#268FE8}{𝐢𝐬} \color{#347BCB}{𝐊𝐧𝐨𝐱} \color{#416BAE}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#405D91}{𝐇𝐮𝐧𝐭𝐞𝐫!} \color{#394E76}{[𝐋𝐞𝐟𝐭} \color{#35445F}{𝟒} \color{#303B4B}{𝐃𝐞𝐚𝐝]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$
 
@@ -228,6 +238,10 @@ $\text{\color{#E52D32}{†}}$ <a href="https://github.com/bigguykoi" style="colo
 $\text{\color{#ab2b2b}{🌈}}$ <a href="https://github.com/Sugar-coatedtoast" style="color: #ab2b2b;">@𝐒𝐮𝐠𝐚𝐫-𝐜𝐨𝐚𝐭𝐞𝐝𝐭𝐨𝐚𝐬𝐭</a> $\text{\color{#ab2b2b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐩𝐨𝐤𝐞𝐢𝐬𝐡𝐞𝐫𝐞! [𝐔𝐔𝐬𝐦𝐩]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮! [𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$
+
+$\text{\color{#51293d}{†}}$ <a href="https://github.com/bastetngeb" style="color: #51293d;">@𝐛𝐚𝐬𝐭𝐞𝐭𝐧𝐠𝐞𝐛</a> $\text{\color{#51293d}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚𝐡! [𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂𝐫𝐮𝐬𝐚𝐝𝐞𝐫𝐬]}}$
+
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
