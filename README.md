@@ -105,7 +105,7 @@ $\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color: #FFDC19;">@𝐤𝐢𝐬𝐬𝐛𝐨𝐰</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐚𝐫𝐥 𝐆𝐫𝐢𝐦𝐞𝐬! [𝐓𝐡𝐞 𝐖𝐚𝐥𝐤𝐢𝐧𝐠 𝐃𝐞𝐚𝐝]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #FFDC19;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐚𝐤𝐮𝐠𝐨 𝐊𝐚𝐭𝐬𝐮𝐤𝐢! [𝐌𝐇𝐀]}}$
+$\text{\color{#FF8A1C}{✮}}$ <a href="https://github.com/kacchanofthebakugos" style="color: #FFDC19;">@𝐤𝐚𝐜𝐜𝐡𝐚𝐧𝐨𝐟𝐭𝐡𝐞𝐛𝐚𝐤𝐮𝐠𝐨𝐬</a> $\text{\color{#FF8A1C}{𝐢𝐬} \color{#F59A19}{𝐊𝐧𝐨𝐱} \color{#E5A91A}{𝐄𝐯𝐞𝐧𝐭'}\color{#D0B51B}{𝐬} \color{#B5BC1C}{𝐁𝐚𝐤𝐮𝐠𝐨} \color{#91B923}{𝐊𝐚𝐭𝐬𝐮𝐤𝐢!} \color{#65A92B}{[𝐌𝐇𝐀]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
