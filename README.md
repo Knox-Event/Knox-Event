@@ -44,11 +44,14 @@ $\text{\color{#4d7c00}{         nomination account.}}$<br>
          $\text{\color{#4d7c00}{nominated below}}$<br>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Use the }}\text{\color{#42f102}
-{Nominate}}\text{\color{#4d7c00}{ button to nominate yourself or others.}}$
+{Nominate}}$
+<br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$
 
-<br><br><br>
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored.}}$<br>
+$\text{\color{#4d7c00}{Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for additional stuff, like requests for your own}}$ <br>
+$\text{\color{#4d7c00}{nomination removal or others.}}$
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored. Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for other additional stuff}}$
+<br>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the}}$<br>
                 $\text{\color{#4d7c00}{         list, do tell me in the  atabook, incase I overlooked.}}$<br>
