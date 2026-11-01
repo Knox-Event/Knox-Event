@@ -121,7 +121,13 @@ $\text{\color{#32D65A}{✮}}$ <a href="https://github.com/THE-SAINT-OF-DEATH" st
 
 $\text{\color{#FFDC19}{╲﹙ˆoˆ *﹚}}$ <a href="https://github.com/tillallareloved" style="color: #FFDC19;">@𝐭𝐢𝐥𝐥𝐚𝐥𝐥𝐚𝐫𝐞𝐥𝐨𝐯𝐞𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐫𝐜𝐞𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#164B91}{ ꒰ 🌀 ꒱ }}$ <a href="https://github.com/rosiepiee" style="color: #247FCB;">@𝐫𝐨𝐬𝐢𝐞𝐩𝐢𝐞𝐞</a> $\text{\color{#247FCB}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#168FCB}{𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#83C9E8}{[𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$
+
+$\text{\color{#4A0710}{꒰ 🖤 ꒱}}$ <a href="https://github.com/reach4thestarz" style="color: #75101C;">@𝐫𝐞𝐚𝐜𝐡𝟒𝐭𝐡𝐞𝐬𝐭𝐚𝐫𝐳</a> $\text{\color{#941827}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#B32030}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#D12B36}{𝐒𝐡𝐚𝐝𝐨𝐰}}$ $\text{\color{#A51D2A}{𝐓𝐡𝐞}}$ $\text{\color{#78101D}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#54101B}{[𝐒𝐎𝐍𝐈𝐂]}}$
+
+$\text{\color{#B84A16}{✮}}$ <a href="https://github.com/freakedoutboy" style="color: #D97819;">@𝐟𝐫𝐞𝐚𝐤𝐞𝐝𝐨𝐮𝐭𝐛𝐨𝐲</a> $\text{\color{#E99520}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#F5B92D}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#FFD34A}{𝐌𝐢𝐜𝐡𝐞𝐥𝐚𝐧𝐠𝐞𝐥𝐨!}}$ $\text{\color{#FFE88A}{[𝐓𝐌𝐍𝐓 𝟐𝟎𝟏𝟐]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/ringodemon" style="color: #FFDC19;">@𝐫𝐢𝐧𝐠𝐨𝐝𝐞𝐦𝐨𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐝𝐰𝐚𝐫𝐝 𝐄𝐥𝐫𝐢𝐜! [𝐅𝐮𝐥𝐥𝐦𝐞𝐭𝐚𝐥 𝐀𝐥𝐜𝐡𝐞𝐦𝐢𝐬𝐭]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -180,6 +186,12 @@ $\text{\color{#B5C900}{ ༉‧₊˚✧ }}$ <a href="https://github.com/rarepip
 
 $\text{\color{#b000ff}{𐔌🐇 ꒱ ˖}}$ <a href="https://github.com/VALENTIN-RENEGADE" style="color: #b000ff;">@𝐕𝐀𝐋𝐄𝐍𝐓𝐈𝐍-𝐑𝐄𝐍𝐄𝐆𝐀𝐃𝐄</a> $\text{\color{#b000ff}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐥𝐢𝐭𝐜𝐡𝐭𝐫𝐚𝐩! [𝐅𝐍𝐀𝐅 𝐕𝐑: 𝐇𝐞𝐥𝐩 𝐖𝐚𝐧𝐭𝐞𝐝]}}$
 
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/JessieeXD" style="color: #B5C900;">@𝐉𝐞𝐬𝐬𝐢𝐞𝐞𝐗𝐃</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐚𝐧𝐭𝐚 𝐒𝐞𝐫𝐨! [𝐌𝐲 𝐇𝐞𝐫𝐨 𝐀𝐜𝐚𝐝𝐞𝐦𝐢𝐚] }}$
+
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/FORENSIC-AUTOPSY" style="color: #B5C900;">@𝐅𝐎𝐑𝐄𝐍𝐒𝐈𝐂-𝐀𝐔𝐓𝐎𝐏𝐒𝐘</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐨𝐨𝐭𝐡𝐢𝐥𝐥! [𝐇𝐨𝐧𝐤𝐚𝐢 𝐒𝐭𝐚𝐫 𝐑𝐚𝐢𝐥]}}$
+
+$\text{\color{#e30540}{꒰ ❤️ 🔪 ꒱}}$ <a href="https://github.com/fallenssoul" style="color: #e30540;">@𝐟𝐚𝐥𝐥𝐞𝐧𝐬𝐬𝐨𝐮𝐥</a> $\text{\color{#e30540}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐚𝐫𝐚! [𝐔𝐧𝐝𝐞𝐫𝐭𝐚𝐥𝐞]}}$
+
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 
@@ -222,6 +234,8 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" st
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/DocHale" style="color: #B5C900;">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/d0ombringer" style="color: #B5C900;">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
+
+$\text{\color{#790D19}{꒰ 🔪 ꒱}}$ <a href="https://github.com/jeverus" style="color: #A91D2B;">@𝐣𝐞𝐯𝐞𝐫𝐮𝐬</a> $\text{\color{#C52B36}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#E13B42}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#F05252}{𝐒𝐥𝐚𝐬𝐡𝐞𝐫!}}$ $\text{\color{#F28B83}{[𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/cobblebob" style="color: #B5C900;">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]}}$
 
