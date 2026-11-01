@@ -37,15 +37,16 @@ $\text{\color{#4d7c00}{         nomination account.}}$<br>
       </a>
     </td>
   </tr>
-</table>
-
-![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
-            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
-         $\text{\color{#4d7c00}{nominated below}}$<br>
+</table> <br>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Use the }}\text{\color{#42f102}
 {Nominate}}$
 <br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
+            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
+         $\text{\color{#4d7c00}{nominated below}}$<br>
+         
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored.}}$<br>
 $\text{\color{#4d7c00}{Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for additional stuff, like requests for your own}}$ <br>
@@ -70,7 +71,7 @@ $\text{\color{#4d7c00}{nomination removal or others.}}$
   </tr>
 </table> <br>
 
-  ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not}}$<br>
+  <br> ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not}}$<br>
   $\text{\color{#4d7c00}{         spam my inbox kindly thx}}$ <br>
 
 <br>
