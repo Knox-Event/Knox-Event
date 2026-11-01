@@ -3,6 +3,7 @@
     If you're reading this , feel free to take some samples from here for the coding stuff 
     I suggest not to copy literally everything or take some images here and claim it as yours
     My style are almost simplistic so there's nothing to WOW so much here
+    Coding all these by myself does makes me shove a hand into my head though, youre welcome to check them out below
 </!-->
 
 <div align="center">
