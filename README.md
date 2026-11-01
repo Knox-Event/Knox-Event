@@ -115,8 +115,8 @@ $\text{\color{#53BB95}{✮}}$ <a href="https://github.com/pawzu" style="color: #
 
 $\text{\color{#FFDC19}{꒰ 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 𝐓𝐡𝐢𝐞𝐟 ꒱ ˖ }}$ <a href="https://github.com/rainedscythe" style="color: #FFDC19;">@𝐫𝐚𝐢𝐧𝐞𝐝𝐬𝐜𝐲𝐭𝐡𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐮𝐠𝐨 𝐕𝐥𝐚𝐝! [𝐙𝐞𝐧𝐥𝐞𝐬𝐬 𝐙𝐨𝐧𝐞 𝐙𝐞𝐫𝐨]}}$
 
-$\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style="color: #FFDC19;">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞! [𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠]}}$<br>
-$\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$<br>
+$\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style="color: #FFDC19;">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞!}}$<br>
+$\text{\color{#FFDC19}{[𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠] 𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$<br>
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color: #FFDC19;">@𝐤𝐢𝐬𝐬𝐛𝐨𝐰</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐚𝐫𝐥 𝐆𝐫𝐢𝐦𝐞𝐬! [𝐓𝐡𝐞 𝐖𝐚𝐥𝐤𝐢𝐧𝐠 𝐃𝐞𝐚𝐝]}}$
 
@@ -137,8 +137,8 @@ $\text{\color{#32D65A}{✮}}$ <a href="https://github.com/THE-SAINT-OF-DEATH" st
 
 $\text{\color{#FFDC19}{╲﹙ˆoˆ *﹚}}$ <a href="https://github.com/tillallareloved" style="color: #FFDC19;">@𝐭𝐢𝐥𝐥𝐚𝐥𝐥𝐚𝐫𝐞𝐥𝐨𝐯𝐞𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐫𝐜𝐞𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
-$\text{\color{#164B91}{ ꒰ 🌀 ꒱ }}$ <a href="https://github.com/rosiepiee" style="color: #247FCB;">@𝐫𝐨𝐬𝐢𝐞𝐩𝐢𝐞𝐞</a> $\text{\color{#247FCB}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#168FCB}{𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$
-$\text{\color{#83C9E8}{[𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$<br>
+$\text{\color{#20549A}{ ꒰ 🌀 ꒱ }}$ <a href="https://github.com/rosiepiee" style="color: #2864AD;">@𝐫𝐨𝐬𝐢𝐞𝐩𝐢𝐞𝐞</a> $\text{\color{#3075B9}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#347FBE}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#2871B4}{𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$
+$\text{\color{#205B9C}{[𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$
 
 $\text{\color{#4A0710}{꒰ 🖤 ꒱}}$ <a href="https://github.com/reach4thestarz" style="color: #75101C;">@𝐫𝐞𝐚𝐜𝐡𝟒𝐭𝐡𝐞𝐬𝐭𝐚𝐫𝐳</a> $\text{\color{#941827}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#B32030}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#D12B36}{𝐒𝐡𝐚𝐝𝐨𝐰}}$ $\text{\color{#A51D2A}{𝐓𝐡𝐞}}$ $\text{\color{#78101D}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#54101B}{[𝐒𝐎𝐍𝐈𝐂]}}$
 
