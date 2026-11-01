@@ -23,7 +23,7 @@
 $\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$<br>
 $\text{\color{#4d7c00}{         nomination account.}}$<br> 
 
-<table align="right" width="40%">
+<table align="left" width="40%">
   <tr>
     <td align="center">
       <a href="https://knoxevent.atabook.org">
@@ -56,11 +56,32 @@ $\text{\color{#4d7c00}{nomination removal or others.}}$
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the}}$<br>
                 $\text{\color{#4d7c00}{         list, do tell me in the  atabook, incase I overlooked.}}$<br>
 
-  ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not}}$<br>
-  $\text{\color{#4d7c00}{         spam my inbox kindly thx}}$<br> <a href="https://github.com/hwobae">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
+<table align="left" width="40%">
+  <tr>
+    <td align="center">
+      <a href="https://github.com/hwobae">
+        <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" width="140">
+      </a>
+      <br>
+      <a href="https://github.com/hwobae">
+        <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled306.png" width="140">
+      </a>
+    </td>
+  </tr>
+</table> <br>
 
-<img width="80" height="100" src="https://pzwiki.net/w/images/2/2a/Spiffoguard_transparent1.png?20240626215029" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
+  ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not}}$<br>
+  $\text{\color{#4d7c00}{         spam my inbox kindly thx}}$ <br>
+
+<br>
+
+<br>
+
+<br>
+
+<div align="left">
+
+<br> <img width="80" height="100" src="https://pzwiki.net/w/images/2/2a/Spiffoguard_transparent1.png?20240626215029" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose}}$<br>
 $\text{\color{#4d7c00}{         another. First come, first serve.}}$<br>
