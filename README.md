@@ -19,10 +19,11 @@
 
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/33/FighterSpiffo.png?20240602230135" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid. Knox-Event is a fan-run community and nomination account.}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$<br>
+$\text{\color{#4d7c00}{         Knox-Event is a fan-run community and nomination account.}}$<br>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
-            $\text{\color{#4d7c00}{appreciations for Project Zomboid and users}}$<br>
+            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
          $\text{\color{#4d7c00}{nominated below}}$<br>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Use the }}\text{\color{#42f102}{Nominate}}\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ <a href="https://knoxevent.atabook.org">
@@ -32,7 +33,7 @@
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled303.png" alt="report" height=“50” width="150">
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the}}$<br>
-                $\text{\color{#4d7c00}{list, do tell me in the  atabook, incase I overlooked.}}$<br>
+                $\text{\color{#4d7c00}{         list, do tell me in the  atabook, incase I overlooked.}}$<br>
 
   ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not spam my inbox kindly thx}}$ <a href="https://github.com/hwobae">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
