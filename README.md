@@ -2,7 +2,7 @@
     Hi
     If you're reading this , feel free to take some samples from here for the coding stuff 
     I suggest not to copy literally everything or take some images here and claim it as yours
-    My style are almost simplistic so there's nothing to admire here
+    My style are almost simplistic so there's nothing to WOW so much here
 </!-->
 
 <div align="center">
@@ -235,7 +235,7 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/DocHale" style="color:
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/d0ombringer" style="color: #B5C900;">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
 
-$\text{\color{#941B2B}{꒰ 🔪 ꒱}}$ <a href="https://github.com/jeverus" style="color: #B52232;">@𝐣𝐞𝐯𝐞𝐫𝐮𝐬</a> $\text{\color{#C12A38}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#CB303B}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#D63843}{𝐒𝐥𝐚𝐬𝐡𝐞𝐫!}}$ $\text{\color{#B92737}{[𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
+$\text{\color{#EF3038}{꒰ 🔪 ꒱}}$ <a href="https://github.com/jeverus" style="color: #E52B35;">@𝐣𝐞𝐯𝐞𝐫𝐮𝐬</a> $\text{\color{#D52B35}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#BD2431}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A51D2B}{𝐒𝐥𝐚𝐬𝐡𝐞𝐫!}}$ $\text{\color{#841522}{[𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/cobblebob" style="color: #B5C900;">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]}}$
 
