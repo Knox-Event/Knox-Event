@@ -21,17 +21,34 @@
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$<br>
 $\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$<br>
-$\text{\color{#4d7c00}{         nomination account.}}$<br>
+$\text{\color{#4d7c00}{         nomination account.}}$<br> 
+
+<table align="right" width="40%">
+  <tr>
+    <td align="center">
+      <a href="https://knoxevent.atabook.org">
+        <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled301.png" width="140">
+      </a>
+      <br>
+      <img src="https://pzwiki.net/w/images/2/2b/JumpSpiffo.png" height="100" width="80">
+      <br>
+      <a href="https://knoxevent.atabook.org">
+        <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled303.png" height="50" width="150">
+      </a>
+    </td>
+  </tr>
+</table>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
             $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
          $\text{\color{#4d7c00}{nominated below}}$<br>
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Use the }}\text{\color{#42f102}{Nominate}}\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ <a href="https://knoxevent.atabook.org">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled301.png" alt="atabook" height=“50” width="150">
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Use the }}\text{\color{#42f102}
+{Nominate}}\text{\color{#4d7c00}{ button to nominate yourself or others.}}$
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored. Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for other additional stuff}}$ <a href="https://knoxevent.atabook.org">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled303.png" alt="report" height=“50” width="150">
+<br><br><br>
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored. Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for other additional stuff}}$
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the}}$<br>
                 $\text{\color{#4d7c00}{         list, do tell me in the  atabook, incase I overlooked.}}$<br>
