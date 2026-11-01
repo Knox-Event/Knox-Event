@@ -20,7 +20,8 @@
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/33/FighterSpiffo.png?20240602230135" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$<br>
-$\text{\color{#4d7c00}{         Knox-Event is a fan-run community and nomination account.}}$<br>
+$\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$<br>
+$\text{\color{#4d7c00}{         nomination account.}}$<br>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
             $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
