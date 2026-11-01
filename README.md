@@ -36,18 +36,25 @@ $\text{\color{#4d7c00}{         nomination account.}}$<br>
 ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{If there are any duplicates that was added in the}}$<br>
                 $\text{\color{#4d7c00}{         list, do tell me in the  atabook, incase I overlooked.}}$<br>
 
-  ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not spam my inbox kindly thx}}$ <a href="https://github.com/hwobae">
+  ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) $\text{\color{#4d7c00}{The nomination list are updated regularly , do not}}$<br>
+  $\text{\color{#4d7c00}{         spam my inbox kindly thx}}$<br> <a href="https://github.com/hwobae">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled300.png" alt="Hwobae" height="50" width="300">
 
 <img width="80" height="100" src="https://pzwiki.net/w/images/2/2a/Spiffoguard_transparent1.png?20240626215029" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose another. First come, first serve.}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose}}$<br>
+$\text{\color{#4d7c00}{         another. First come, first serve.}}$<br>
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Do not be upset when your character are taken already, zombies still wants u trust me}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Please do not be upset when your character are taken}}$<br>
+$\text{\color{#4d7c00}{         already, you will receive warm embrace from}}$<br>
+$\text{\color{#4d7c00}{         the horde of infecteds, maybe.}}$<br>
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Same username can only choose one category + 1 or 2 characters/medias. You can nominate more than 1 username for a friend.}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Same username can only choose one category + 1}}$<br>
+$\text{\color{#4d7c00}{or 2 characters/medias. You can nominate more}}$<br> 
+$\text{\color{#4d7c00}{than 1 username for a friend.}}$<br>
 
-![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Adding problematic medias are not tolerated, for e.g tcoaal for obvious one.}}$
+![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{Adding problematic medias are not tolerated, for}}$<br>
+$\text{\color{#4d7c00}{e.g tcoaal if not obvious.}}$<br>
 
 <!---
     Categories , Survivors
@@ -88,11 +95,13 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/nereherrman" style="co
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/screworangeslugs" style="color: #FFDC19;">@𝐬𝐜𝐫𝐞𝐰𝐨𝐫𝐚𝐧𝐠𝐞𝐬𝐥𝐮𝐠𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐞𝐰𝐛𝐢𝐞! [𝐇𝐨𝐨𝐩𝐬 𝐚𝐧𝐝 𝐘𝐨𝐲𝐨]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] + 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$<br>
+$\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐅𝐨𝐮𝐫 𝐒𝐞𝐚𝐬𝐨𝐧𝐬: 𝐖𝐢𝐧𝐭𝐞𝐫 𝐦𝐮𝐬𝐢𝐜!}}$<br>
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/HXTERICRANZZ" style="color: #FFDC19;">@𝐇𝐗𝐓𝐄𝐑𝐈𝐂𝐑𝐀𝐍𝐙𝐙</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐨𝐤𝐮!}}$
 
-$\text{\color{#FFDC19}{ଘ(੭∗ˊᵕˋ)੭∗}}$ <a href="https://github.com/l0veis4ika" style="color: #FFDC19;">@𝐥𝟎𝐯𝐞𝐢𝐬𝟒𝐢𝐤𝐚</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚 𝐔𝐫𝐨𝐬𝐡𝐢𝐦𝐢𝐲𝐚! [𝐔𝐦𝐢𝐧𝐞𝐤𝐨 𝐍𝐨 𝐍𝐚𝐤𝐮 𝐊𝐨𝐫𝐨 𝐍𝐢]}}$
+$\text{\color{#FFDC19}{ଘ(੭∗ˊᵕˋ)੭∗}}$ <a href="https://github.com/l0veis4ika" style="color: #FFDC19;">@𝐥𝟎𝐯𝐞𝐢𝐬𝟒𝐢𝐤𝐚</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚 𝐔𝐫𝐨𝐬𝐡𝐢𝐦𝐢𝐲𝐚!}}$<br>
+$\text{\color{#FFDC19}{[𝐔𝐦𝐢𝐧𝐞𝐤𝐨 𝐍𝐨 𝐍𝐚𝐤𝐮 𝐊𝐨𝐫𝐨 𝐍𝐢]}}$<br>
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/RottenPlate" style="color: #FFDC19;">@𝐑𝐨𝐭𝐭𝐞𝐧𝐏𝐥𝐚𝐭𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐚𝐱𝐰𝐞𝐥𝐥! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
@@ -106,7 +115,8 @@ $\text{\color{#53BB95}{✮}}$ <a href="https://github.com/pawzu" style="color: #
 
 $\text{\color{#FFDC19}{꒰ 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 𝐓𝐡𝐢𝐞𝐟 ꒱ ˖ }}$ <a href="https://github.com/rainedscythe" style="color: #FFDC19;">@𝐫𝐚𝐢𝐧𝐞𝐝𝐬𝐜𝐲𝐭𝐡𝐞</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐮𝐠𝐨 𝐕𝐥𝐚𝐝! [𝐙𝐞𝐧𝐥𝐞𝐬𝐬 𝐙𝐨𝐧𝐞 𝐙𝐞𝐫𝐨]}}$
 
-$\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style="color: #FFDC19;">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞! [𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠] 𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
+$\text{\color{#FFDC19}{♕}}$ <a href="https://github.com/datingdetergent" style="color: #FFDC19;">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞! [𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠]}}$<br>
+$\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$<br>
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kissbow" style="color: #FFDC19;">@𝐤𝐢𝐬𝐬𝐛𝐨𝐰</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐚𝐫𝐥 𝐆𝐫𝐢𝐦𝐞𝐬! [𝐓𝐡𝐞 𝐖𝐚𝐥𝐤𝐢𝐧𝐠 𝐃𝐞𝐚𝐝]}}$
 
@@ -118,7 +128,8 @@ $\text{\color{#A81727}{✮}}$ <a href="https://github.com/08clipse" style="color
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/poisonedritual" style="color: #FFDC19;">@𝐩𝐨𝐢𝐬𝐨𝐧𝐞𝐝𝐫𝐢𝐭𝐮𝐚𝐥</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐨 𝐓𝐢𝐦𝐞! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
-$\text{\color{#FFD73F}{𐔌˙˖°🦊⋆˚꒱ ˖}}$ <a href="https://github.com/LUNARPOOLS" style="color: #FFD73F;">@𝐋𝐔𝐍𝐀𝐑𝐏𝐎𝐎𝐋𝐒</a> $\text{\color{#FFD73F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐥𝐞𝐬 "𝐓𝐚𝐢𝐥𝐬" 𝐏𝐫𝐨𝐰𝐞𝐫! [𝐓𝐡𝐞 𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$
+$\text{\color{#FFD73F}{𐔌˙˖°🦊⋆˚꒱ ˖}}$ <a href="https://github.com/LUNARPOOLS" style="color: #FFD73F;">@𝐋𝐔𝐍𝐀𝐑𝐏𝐎𝐎𝐋𝐒</a> $\text{\color{#FFD73F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐥𝐞𝐬 "𝐓𝐚𝐢𝐥𝐬" 𝐏𝐫𝐨𝐰𝐞𝐫!}}$<br>
+$\text{\color{#FFD73F}{[𝐓𝐡𝐞 𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$<br>
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/opioiid" style="color: #FFDC19;">@𝐨𝐩𝐢𝐨𝐢𝐢𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐨𝐭 𝐏𝐚𝐧𝐭𝐬! [𝐉𝐉𝐁𝐀 𝐒𝐭𝐞𝐞𝐥 𝐁𝐚𝐥𝐥 𝐑𝐮𝐧]}}$
 
@@ -126,7 +137,8 @@ $\text{\color{#32D65A}{✮}}$ <a href="https://github.com/THE-SAINT-OF-DEATH" st
 
 $\text{\color{#FFDC19}{╲﹙ˆoˆ *﹚}}$ <a href="https://github.com/tillallareloved" style="color: #FFDC19;">@𝐭𝐢𝐥𝐥𝐚𝐥𝐥𝐚𝐫𝐞𝐥𝐨𝐯𝐞𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐫𝐜𝐞𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
 
-$\text{\color{#164B91}{ ꒰ 🌀 ꒱ }}$ <a href="https://github.com/rosiepiee" style="color: #247FCB;">@𝐫𝐨𝐬𝐢𝐞𝐩𝐢𝐞𝐞</a> $\text{\color{#247FCB}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#168FCB}{𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#83C9E8}{[𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$
+$\text{\color{#164B91}{ ꒰ 🌀 ꒱ }}$ <a href="https://github.com/rosiepiee" style="color: #247FCB;">@𝐫𝐨𝐬𝐢𝐞𝐩𝐢𝐞𝐞</a> $\text{\color{#247FCB}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#168FCB}{𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$
+$\text{\color{#83C9E8}{[𝐒𝐨𝐧𝐢𝐜 𝐅𝐫𝐚𝐧𝐜𝐡𝐢𝐬𝐞]}}$<br>
 
 $\text{\color{#4A0710}{꒰ 🖤 ꒱}}$ <a href="https://github.com/reach4thestarz" style="color: #75101C;">@𝐫𝐞𝐚𝐜𝐡𝟒𝐭𝐡𝐞𝐬𝐭𝐚𝐫𝐳</a> $\text{\color{#941827}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#B32030}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#D12B36}{𝐒𝐡𝐚𝐝𝐨𝐰}}$ $\text{\color{#A51D2A}{𝐓𝐡𝐞}}$ $\text{\color{#78101D}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#54101B}{[𝐒𝐎𝐍𝐈𝐂]}}$
 
@@ -157,7 +169,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠! [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚! [𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚!}}$<br>
+$\text{\color{#B5C900}{[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$<br>
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/UNLEASH-NOLI" style="color: #B5C900;">@𝐔𝐍𝐋𝐄𝐀𝐒𝐇-𝐍𝐎𝐋𝐈</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐨𝐥𝐢! [𝐑𝐎𝐁𝐋𝐎𝐗]}}$
 
@@ -177,7 +190,8 @@ $\text{\color{#7654A8}{☯}}$ <a href="https://github.com/wifiesh">@𝐰𝐢𝐟
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/BetrayedNotes" style="color: #B5C900;">@𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝𝐍𝐨𝐭𝐞𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝 𝟏𝐱𝟏𝐱𝟏𝐱𝟏! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Ham-milton" style="color: #B5C900;">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Ham-milton" style="color: #B5C900;">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫!}}$<br>
+$\text{\color{#B5C900}{[𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$<br>
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/juliekoctavia" style="color: #B5C900;">@𝐣𝐮𝐥𝐢𝐞𝐤𝐨𝐜𝐭𝐚𝐯𝐢𝐚</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐠𝐮𝐫𝐮 𝐆𝐞𝐭𝐨! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
@@ -189,7 +203,8 @@ $\text{\color{#66d9bf}{⨂}}$ <a href="https://github.com/5P-25" style="color: #
 
 $\text{\color{#B5C900}{ ༉‧₊˚✧ }}$ <a href="https://github.com/rarepiplash" style="color: #B5C900;">@𝐫𝐚𝐫𝐞𝐩𝐢𝐩𝐥𝐚𝐬𝐡</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐫𝐞 𝐏𝐢𝐩𝐥𝐚𝐬𝐡! [𝐌𝐒𝐌]}}$
 
-$\text{\color{#b000ff}{𐔌🐇 ꒱ ˖}}$ <a href="https://github.com/VALENTIN-RENEGADE" style="color: #b000ff;">@𝐕𝐀𝐋𝐄𝐍𝐓𝐈𝐍-𝐑𝐄𝐍𝐄𝐆𝐀𝐃𝐄</a> $\text{\color{#b000ff}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐥𝐢𝐭𝐜𝐡𝐭𝐫𝐚𝐩! [𝐅𝐍𝐀𝐅 𝐕𝐑: 𝐇𝐞𝐥𝐩 𝐖𝐚𝐧𝐭𝐞𝐝]}}$
+$\text{\color{#b000ff}{𐔌🐇 ꒱ ˖}}$ <a href="https://github.com/VALENTIN-RENEGADE" style="color: #b000ff;">@𝐕𝐀𝐋𝐄𝐍𝐓𝐈𝐍-𝐑𝐄𝐍𝐄𝐆𝐀𝐃𝐄</a> $\text{\color{#b000ff}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐥𝐢𝐭𝐜𝐡𝐭𝐫𝐚𝐩!}}$<br>
+$\text{\color{#b000ff}{[𝐅𝐍𝐀𝐅 𝐕𝐑: 𝐇𝐞𝐥𝐩 𝐖𝐚𝐧𝐭𝐞𝐝]}}$<br>
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/JessieeXD" style="color: #B5C900;">@𝐉𝐞𝐬𝐬𝐢𝐞𝐞𝐗𝐃</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐚𝐧𝐭𝐚 𝐒𝐞𝐫𝐨! [𝐌𝐲 𝐇𝐞𝐫𝐨 𝐀𝐜𝐚𝐝𝐞𝐦𝐢𝐚] }}$
 
@@ -222,9 +237,11 @@ $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="colo
 
 $\text{\color{#9673B9}{＜ ♦}}$ <a href="https://github.com/doomfraid" style="color: #C0A0D8;">@𝐝𝐨𝐨𝐦𝐟𝐫𝐚𝐢𝐝</a> $\text{\color{#79518F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#563568}{𝚁𝚘𝚜𝚎 𝙻𝚊𝚕𝚘𝚗𝚍𝚎!}}$ $\text{\color{#A47ABF}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔] ＞}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝 𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝}}$<br>
+$\text{\color{#f80202}{𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$<br>
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 ! [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 !}}$<br>
+$\text{\color{#f80202}{         [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$<br>
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/Blame-John" style="color: #B5C900;">@𝐁𝐥𝐚𝐦𝐞-𝐉𝐨𝐡𝐧</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐞𝐝𝐥𝐞𝐭𝐬𝐤𝐲! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
 
@@ -244,7 +261,8 @@ $\text{\color{#EF3038}{꒰ 🔪 ꒱}}$ <a href="https://github.com/jeverus" styl
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/cobblebob" style="color: #B5C900;">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚! [𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚!}}$<br>
+$\text{\color{#f80202}{[𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬]}}$<br>
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/sicklyrose" style="color: #B5C900;">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]}}$
 
@@ -258,9 +276,11 @@ $\text{\color{#E52D32}{†}}$ <a href="https://github.com/bigguykoi" style="colo
 
 $\text{\color{#ab2b2b}{🌈}}$ <a href="https://github.com/Sugar-coatedtoast" style="color: #ab2b2b;">@𝐒𝐮𝐠𝐚𝐫-𝐜𝐨𝐚𝐭𝐞𝐝𝐭𝐨𝐚𝐬𝐭</a> $\text{\color{#ab2b2b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐩𝐨𝐤𝐞𝐢𝐬𝐡𝐞𝐫𝐞! [𝐔𝐔𝐬𝐦𝐩]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮! [𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮!}}$<br>
+$\text{\color{#f80202}{[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$<br>
 
-$\text{\color{#51293d}{†}}$ <a href="https://github.com/bastetngeb" style="color: #51293d;">@𝐛𝐚𝐬𝐭𝐞𝐭𝐧𝐠𝐞𝐛</a> $\text{\color{#51293d}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚𝐡! [𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂𝐫𝐮𝐬𝐚𝐝𝐞𝐫𝐬]}}$
+$\text{\color{#51293d}{†}}$ <a href="https://github.com/bastetngeb" style="color: #51293d;">@𝐛𝐚𝐬𝐭𝐞𝐭𝐧𝐠𝐞𝐛</a> $\text{\color{#51293d}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚𝐡!}}$<br>
+$\text{\color{#51293d}{[𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂𝐫𝐮𝐬𝐚𝐝𝐞𝐫𝐬]}}$<br>
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
