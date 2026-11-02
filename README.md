@@ -48,7 +48,7 @@ $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$
 
  </p>
 
- <div align="left">
+ <div align="center">
 
 $\text{\color{#4d7c00}{Use the}}\text{\color{#42f102}{ Nominate}}$
 <br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
