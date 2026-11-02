@@ -193,6 +193,8 @@ $\text{\color{#B84A16}{✮}}$ <a href="https://github.com/freakedoutboy" style="
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/ringodemon" style="color: #FFDC19;">@𝐫𝐢𝐧𝐠𝐨𝐝𝐞𝐦𝐨𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐝𝐰𝐚𝐫𝐝 𝐄𝐥𝐫𝐢𝐜! [𝐅𝐮𝐥𝐥𝐦𝐞𝐭𝐚𝐥 𝐀𝐥𝐜𝐡𝐞𝐦𝐢𝐬𝐭]}}$
 
+$\text{\color{#174D35}{✮}}$ <a href="https://github.com/god-of-stories" style="color: #286B46;">@𝐠𝐨𝐝-𝐨𝐟-𝐬𝐭𝐨𝐫𝐢𝐞𝐬</a> $\text{\color{#347F50}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#45965A}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#659B45}{𝐋𝐨𝐤𝐢}}$ $\text{\color{#A18D36}{𝐋𝐚𝐮𝐟𝐞𝐲𝐬𝐨𝐧!}}$ $\text{\color{#78652B}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -258,6 +260,11 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/JessieeXD" style="colo
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/FORENSIC-AUTOPSY" style="color: #B5C900;">@𝐅𝐎𝐑𝐄𝐍𝐒𝐈𝐂-𝐀𝐔𝐓𝐎𝐏𝐒𝐘</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐨𝐨𝐭𝐡𝐢𝐥𝐥! [𝐇𝐨𝐧𝐤𝐚𝐢 𝐒𝐭𝐚𝐫 𝐑𝐚𝐢𝐥]}}$
 
 $\text{\color{#e30540}{꒰ ❤️ 🔪 ꒱}}$ <a href="https://github.com/fallenssoul" style="color: #e30540;">@𝐟𝐚𝐥𝐥𝐞𝐧𝐬𝐬𝐨𝐮𝐥</a> $\text{\color{#e30540}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐚𝐫𝐚! [𝐔𝐧𝐝𝐞𝐫𝐭𝐚𝐥𝐞]}}$
+
+$\text{\color{#633B9B}{☣}}$ <a href="https://github.com/theemotionalside" style="color: #7549AC;">@𝐭𝐡𝐞𝐞𝐦𝐨𝐭𝐢𝐨𝐧𝐚𝐥𝐬𝐢𝐝𝐞</a> $\text{\color{#8756B9}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#995FC1}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A34FAD}{𝐓𝐡𝐞 𝐇𝐞𝐚𝐫𝐭!}}$ <br>
+$\text{\color{#85438F}{[𝐂𝐡𝐨𝐧𝐧𝐲'𝐬}}$ $\text{\color{#713B83}{𝐂𝐡𝐚𝐫𝐦𝐢𝐧𝐠}}$ $\text{\color{#59316F}{𝐂𝐡𝐚𝐨𝐬}}$ $\text{\color{#48285E}{𝐂𝐨𝐦𝐩𝐞𝐧𝐝𝐢𝐮𝐦]}}$
+
+$\text{\color{#03fc98}{﹙✿ ◠‿◠﹚}}$ <a href="https://github.com/exorpirate" style="color: #03fc98;">@𝐞𝐱𝐨𝐫𝐩𝐢𝐫𝐚𝐭𝐞</a> $\text{\color{#03fc98}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐤𝐢𝐭! [𝐏𝐡𝐢𝐠𝐡𝐭𝐢𝐧𝐠]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
@@ -328,6 +335,8 @@ $\text{\color{#f80202}{[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭�
 
 $\text{\color{#51293d}{†}}$ <a href="https://github.com/bastetngeb" style="color: #51293d;">@𝐛𝐚𝐬𝐭𝐞𝐭𝐧𝐠𝐞𝐛</a> $\text{\color{#51293d}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚𝐡!}}$<br>
 $\text{\color{#51293d}{[𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂𝐫𝐮𝐬𝐚𝐝𝐞𝐫𝐬]}}$<br>
+
+$\text{\color{#95466D}{꒰ ✦ ꒱}}$ <a href="https://github.com/KayleighJudas" style="color: #95466D;">@𝐊𝐚𝐲𝐥𝐞𝐢𝐠𝐡𝐉𝐮𝐝𝐚𝐬</a> $\text{\color{#95466D}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐕𝐢𝐤𝐭𝐨𝐫! [𝐀𝐫𝐜𝐚𝐧𝐞]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
