@@ -294,6 +294,9 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color
 
 $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
 
+$\text{\color{#f80202}{⸜﹙´ ꒳ `﹚⸝}}$ <a href="https://github.com/smith-kingsley" style="color: #B5C900;">@𝐬𝐦𝐢𝐭𝐡-𝐤𝐢𝐧𝐠𝐬𝐥𝐞𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐎𝐥𝐥𝐢𝐞 𝐏𝐥𝐢𝐦𝐬𝐨𝐥𝐥𝐬 𝐀𝐧𝐝 𝐑𝐞𝐞𝐜𝐞 𝐒𝐡𝐞𝐚𝐫𝐬𝐦𝐢𝐭𝐡!}}$ <br>
+$\text{\color{#f80202}{[𝐓𝐡𝐞 𝐋𝐞𝐚𝐠𝐮𝐞 𝐨𝐟 𝐆𝐞𝐧𝐭𝐥𝐞𝐦𝐞𝐧]}}$
+
 $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="color: #268FE8;">@𝐣𝐚𝐳𝐳𝐲𝐦𝐚𝐠𝐞</a> $\text{\color{#268FE8}{𝐢𝐬} \color{#347BCB}{𝐊𝐧𝐨𝐱} \color{#416BAE}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#405D91}{𝐇𝐮𝐧𝐭𝐞𝐫!} \color{#394E76}{[𝐋𝐞𝐟𝐭} \color{#35445F}{𝟒} \color{#303B4B}{𝐃𝐞𝐚𝐝]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮!}}$<br>
