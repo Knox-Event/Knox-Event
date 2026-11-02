@@ -294,7 +294,7 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/Blame-John" style="col
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/Senjurochistic" style="color: #B5C900;">@𝐒𝐞𝐧𝐣𝐮𝐫𝐨𝐜𝐡𝐢𝐬𝐭𝐢𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐞𝐧𝐣𝐮𝐫𝐨 𝐑𝐞𝐧𝐠𝐨𝐤𝐮! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/AutopsiedGore" style="color: #B5C900;">@𝐀𝐮𝐭𝐨𝐩𝐬𝐢𝐞𝐝𝐆𝐨𝐫𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐠𝐮𝐫𝐨 𝐁𝐚𝐧𝐚𝐢! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/AutopsiedGore" style="color: #B5C900;">@𝐀𝐮𝐭𝐨𝐩𝐬𝐢𝐞𝐝𝐆𝐨𝐫𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐠𝐮𝐫𝐨 𝐎𝐛𝐚𝐧𝐚𝐢! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/sw33tsug4rcookie" style="color: #B5C900;">@𝐬𝐰𝟑𝟑𝐭𝐬𝐮𝐠𝟒𝐫𝐜𝐨𝐨𝐤𝐢𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐆𝐢𝐧𝐠𝐞𝐫! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
