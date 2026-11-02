@@ -19,7 +19,7 @@ $\text{\color{#4d7c00}{Spiffo The Raccoon image sources are in}}$ <a href="https
 
 <div align="left">
 
-<img width="100" height="100" src="https://pzwiki.net/w/images/0/0d/Be_precise.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
+<img width="120" height="130" src="https://pzwiki.net/w/images/0/0d/Be_precise.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
 
 $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$
 $\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$
