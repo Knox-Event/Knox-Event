@@ -20,26 +20,11 @@
 
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/33/FighterSpiffo.png?20240602230135" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
 
-$\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$<br>
+$\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$
 $\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$
 $\text{\color{#4d7c00}{         nomination account.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif)
 
-<div align="left">
-
-$\text{\color{#4d7c00}{Use the}}\text{\color{#42f102}{ Nominate}}$
-<br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
-
-</p>
-
-<div align="left">
-
-$\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
-            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
-         $\text{\color{#4d7c00}{nominated below}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
-
- </p>
-
-<table align="center" width="40%">
+<table align="right" width="40%">
   <tr>
     <td align="center">
       <a href="https://knoxevent.atabook.org">
@@ -56,9 +41,24 @@ $\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
 </table>
 
 <div align="left">
+
+$\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$
+            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$
+         $\text{\color{#4d7c00}{nominated below}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
+
+ </p>
+
+ <div align="left">
+
+$\text{\color{#4d7c00}{Use the}}\text{\color{#42f102}{ Nominate}}$
+<br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
+
+</p>
+
+<div align="left">
     
-$\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored.}}$<br>
-$\text{\color{#4d7c00}{Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for additional stuff, like requests for your own}}$ <br>
+$\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored.}}$
+$\text{\color{#4d7c00}{Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for additional stuff, like requests for your own}}$
 $\text{\color{#4d7c00}{nomination removal or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
 
 <br>
