@@ -1,7 +1,7 @@
 <!---
     Hi
     If you're reading this , feel free to take some samples from here for the coding stuff 
-    I suggest not to copy literally everything or take some images here and claim it as yours
+    I suggest not to copy literally everything or take some images here (they're not mine either love u PZwiki) and          claim it as yours.
     My style are almost simplistic so there's nothing to WOW so much here
     Coding all these by myself does makes me shove a hand into my head though, youre welcome to check them out below
 </!-->
@@ -21,10 +21,25 @@
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/33/FighterSpiffo.png?20240602230135" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
 
 $\text{\color{#4d7c00}{Zombie-themed, inspired by Project Zomboid.}}$<br>
-$\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$<br>
-$\text{\color{#4d7c00}{         nomination account.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif)  <br> 
+$\text{\color{#4d7c00}{         Knox-Event is a fan-run community and}}$
+$\text{\color{#4d7c00}{         nomination account.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif)
 
-<table align="left" width="40%">
+<div align="left">
+
+$\text{\color{#4d7c00}{Use the}}\text{\color{#42f102}{ Nominate}}$
+<br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
+
+</p>
+
+<div align="left">
+
+$\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
+            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
+         $\text{\color{#4d7c00}{nominated below}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
+
+ </p>
+
+<table align="center" width="40%">
   <tr>
     <td align="center">
       <a href="https://knoxevent.atabook.org">
@@ -40,17 +55,8 @@ $\text{\color{#4d7c00}{         nomination account.}}$ ![](https://file.garden/Z
   </tr>
 </table>
 
-<br>
-
-$\text{\color{#4d7c00}{Use the}}\text{\color{#42f102}{ Nominate}}$
-<br> $\text{\color{#4d7c00}{ button to nominate yourself or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
-
-$\text{\color{#4d7c00}{I'm doing these mostly for funsies and showing}}$<br>
-            $\text{\color{#4d7c00}{         appreciations for Project Zomboid and users}}$<br>
-         $\text{\color{#4d7c00}{nominated below}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
-
-<br>
-
+<div align="left">
+    
 $\text{\color{#4d7c00}{Categories like }}\text{\color{#42f102}{YUMESHIPPERS}}\text{\color{#4d7c00}{ will be ignored.}}$<br>
 $\text{\color{#4d7c00}{Refer to }}\text{\color{#42f102}{REPORT}}\text{\color{#4d7c00}{ for additional stuff, like requests for your own}}$ <br>
 $\text{\color{#4d7c00}{nomination removal or others.}}$ ![](https://file.garden/ZroW4OcqSGtS0a5j/50e1276b.gif) 
@@ -289,6 +295,9 @@ $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style=
 
 $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="color: #268FE8;">@𝐣𝐚𝐳𝐳𝐲𝐦𝐚𝐠𝐞</a> $\text{\color{#268FE8}{𝐢𝐬} \color{#347BCB}{𝐊𝐧𝐨𝐱} \color{#416BAE}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#405D91}{𝐇𝐮𝐧𝐭𝐞𝐫!} \color{#394E76}{[𝐋𝐞𝐟𝐭} \color{#35445F}{𝟒} \color{#303B4B}{𝐃𝐞𝐚𝐝]}}$
 
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮!}}$<br>
+$\text{\color{#f80202}{[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$<br>
+
 $\text{\color{#9673B9}{＜ ♦}}$ <a href="https://github.com/doomfraid" style="color: #C0A0D8;">@𝐝𝐨𝐨𝐦𝐟𝐫𝐚𝐢𝐝</a> $\text{\color{#79518F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#563568}{𝚁𝚘𝚜𝚎 𝙻𝚊𝚕𝚘𝚗𝚍𝚎!}}$ $\text{\color{#A47ABF}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔] ＞}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝}}$<br>
@@ -329,9 +338,6 @@ $\text{\color{#f80202}{♡}}$ <a href="https://github.com/danznc" style="color: 
 $\text{\color{#E52D32}{†}}$ <a href="https://github.com/bigguykoi" style="color: #E52D32;">@𝐛𝐢𝐠𝐠𝐮𝐲𝐤𝐨𝐢</a> $\text{\color{#E52D32}{𝐢𝐬} \color{#D92A30}{𝐊𝐧𝐨𝐱} \color{#CC252F}{𝐄𝐯𝐞𝐧𝐭'}\color{#BA2530}{𝐬} \color{#A92330}{𝐓𝐨𝐧𝐲} \color{#941F30}{𝐒𝐭𝐚𝐫𝐤!} \color{#791D32}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
 
 $\text{\color{#ab2b2b}{🌈}}$ <a href="https://github.com/Sugar-coatedtoast" style="color: #ab2b2b;">@𝐒𝐮𝐠𝐚𝐫-𝐜𝐨𝐚𝐭𝐞𝐝𝐭𝐨𝐚𝐬𝐭</a> $\text{\color{#ab2b2b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐩𝐨𝐤𝐞𝐢𝐬𝐡𝐞𝐫𝐞! [𝐔𝐔𝐬𝐦𝐩]}}$
-
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮!}}$<br>
-$\text{\color{#f80202}{[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$<br>
 
 $\text{\color{#51293d}{†}}$ <a href="https://github.com/bastetngeb" style="color: #51293d;">@𝐛𝐚𝐬𝐭𝐞𝐭𝐧𝐠𝐞𝐛</a> $\text{\color{#51293d}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐚𝐫𝐢𝐚𝐡!}}$<br>
 $\text{\color{#51293d}{[𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂𝐫𝐮𝐬𝐚𝐝𝐞𝐫𝐬]}}$<br>
