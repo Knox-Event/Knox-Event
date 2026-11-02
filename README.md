@@ -10,6 +10,7 @@
 
 <img width="700" height="400" alt="dont be a hero." src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
 
+$\text{\color{#4d7c00}{Spiffo The Raccoon image sources are in}}$ <a href="https://pzwiki.net/wiki/Category:Spiffo_images">here.</a>
 </p>
 
 <!---
