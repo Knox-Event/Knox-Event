@@ -5,11 +5,7 @@
     My style are almost simplistic so there's nothing to WOW so much here
     Coding all these by myself does makes me shove a hand into my head though, youre welcome to check them out below
 </!-->
-<div align="right">
 
-<img width="264" height="348" alt="spiffo pony" src="" />
-
-</p>
 <div align="center">
 
 <img width="700" height="400" alt="dont be a hero." src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
