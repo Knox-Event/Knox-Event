@@ -3,7 +3,7 @@
     If you're reading this , feel free to take some samples from here for the coding stuff 
     I suggest not to copy literally everything or take some images here (they're not mine either love u PZwiki) and          claim it as yours.
     My style are almost simplistic so there's nothing to WOW so much here
-    Coding all these by myself does makes me shove a hand into my head though, youre welcome to check them out below
+    Coding all these by myself does makes me want to dig my hand into my head though, youre welcome to check them out below
 </!-->
 
 <div align="center">
@@ -269,7 +269,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/hwobae" style="color: #B5C900;">@𝐡𝐰𝐨𝐛𝐚𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐰𝐨𝐚𝐫𝐚𝐧𝐠! [𝐓𝐄𝐊𝐊𝐄𝐍]}}$
 
-$\text{\color{#a10000}{꒰ ♈︎ ꒱}}$ <a href="https://github.com/spikedfist" style="color: #a10000;">@𝚜𝚙𝚒𝚔𝚎𝚍𝚏𝚒𝚜𝚝</a> $\text{\color{#a10000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙰𝚛𝚊𝚍𝚒𝚊 𝙼𝚎𝚐𝚒𝚍𝚘! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
+$\text{\color{#a10000}{꒰ ♈︎ ꒱}}$ <a href="https://github.com/spikedfist" style="color: #a10000;">@𝚜𝚙𝚒𝚔𝚎𝚍𝚏𝚒𝚜𝚝</a> $\text{\color{#a10000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙰𝚛𝚊𝚍𝚒𝚊 𝙼𝚎𝚐𝚒𝚍𝚘!}}$ <br>
+$\text{\color{#a10000}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚!}}$<br>
