@@ -19,11 +19,9 @@ $\text{\color{#4d7c00}{Spiffo The Raccoon image sources are in}}$ <a href="https
 
 <div align="center">
 
-$\text{\color{#F6A52B}{𝐋𝐞𝐭'𝐬}} \; \text{\color{#F3A027}{𝐠𝐞𝐭}} \; \text{\color{#F09A20}{𝐚}} \; \text{\color{#EE911B}{𝐛𝐢𝐫𝐝'𝐬}} \; \text{\color{#EB8918}{𝐞𝐲𝐞}} \; \text{\color{#E98117}{𝐯𝐢𝐞𝐰}} \; \text{\color{#E77A15}{𝐨𝐟}} \; \text{\color{#E57313}{𝐭𝐡𝐞}} \; \text{\color{#E16C12}{𝐥𝐨𝐧𝐞𝐥𝐲}} \; \text{\color{#DD6411}{𝐩𝐥𝐚𝐜𝐞}} \; \text{\color{#D95D10}{𝐰𝐡𝐞𝐫𝐞}} \; \text{\color{#D4550F}{𝐲𝐨𝐮'𝐫𝐞}} \; \text{\color{#CF500E}{𝐚𝐛𝐨𝐮𝐭}} \; \text{\color{#CA4B0D}{𝐭𝐨}} \; \text{\color{#C6470C}{𝐝𝐢𝐞}} \; \text{\color{#C6470C}{-}} \; \text{\color{#D0520E}{𝐦𝐢𝐬𝐞𝐫𝐚𝐛𝐥𝐞}} \; \text{\color{#D95D10}{𝐚𝐧𝐝}} \; \text{\color{#E57313}{𝐚𝐥𝐨𝐧𝐞!}}$
-
-<br>
-
-$\text{\color{#D95D10}{— 𝐒𝐩𝐢𝐟𝐟𝐨 𝐭𝐡𝐞 𝐑𝐚𝐜𝐜𝐨𝐨𝐧}}$
+*$\text{\color{#F6A52B}{Let's}} \qquad \color{#F3A027}{\text{get}} \qquad \color{#F09A20}{\text{a}} \qquad \color{#EE911B}{\text{bird's}} \qquad \color{#EB8918}{\text{eye}}$*<br>
+*$\text{\color{#E98117}{view}} \qquad \color{#E77A15}{\text{of}} \qquad \color{#E57313}{\text{the}} \qquad \color{#E16C12}{\text{lonely}} \qquad \color{#DD6411}{\text{place}} \qquad \color{#D95D10}{\text{where}}$*<br>
+*$\text{\color{#D4550F}{you're}} \qquad \color{#CF500E}{\text{about}} \qquad \color{#CA4B0D}{\text{to}} \qquad \color{#C6470C}{\text{die}} \qquad \color{#C6470C}{\text{— Spiffo the Raccoon}}$*
 
 </p>
 
