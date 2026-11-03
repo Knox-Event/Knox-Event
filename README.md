@@ -277,7 +277,7 @@ $\text{\color{#03fc98}{﹙✿ ◠‿◠﹚}}$ <a href="https://github.com/exorpi
 
 $\text{\color{#4365B3}{𖦏}}$ <a href="https://github.com/starfollower" style="color: #4365B3;">@𝐬𝐭𝐚𝐫𝐟𝐨𝐥𝐥𝐨𝐰𝐞𝐫</a> $\text{\color{#4365B3}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐨𝐜𝐤𝐞𝐭! [𝐏𝐡𝐢𝐠𝐡𝐭𝐢𝐧𝐠]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Rydenyuri" style="color: #B5C900;">@𝐑𝐲𝐝𝐞𝐧𝐲𝐮𝐫𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐚𝐧 𝐑𝐨𝐬𝐬! [𝐏𝐚𝐧𝐢𝐜! 𝐀𝐭 𝐓𝐡𝐞 𝐃𝐢𝐬𝐜𝐨]}}$
+$\text{\color{#760029}{☣}}$ <a href="https://github.com/Rydenyuri" style="color: #760029;">@𝐑𝐲𝐝𝐞𝐧𝐲𝐮𝐫𝐢</a> $\text{\color{#760029}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐚𝐧 𝐑𝐨𝐬𝐬! [𝐏𝐚𝐧𝐢𝐜! 𝐀𝐭 𝐓𝐡𝐞 𝐃𝐢𝐬𝐜𝐨]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/qnakin" style="color: #B5C900;">@𝐪𝐧𝐚𝐤𝐢𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐚𝐤𝐢𝐧 𝐒𝐤𝐲𝐰𝐚𝐥𝐤𝐞𝐫! [𝐒𝐭𝐚𝐫 𝐖𝐚𝐫𝐬]}}$
 
