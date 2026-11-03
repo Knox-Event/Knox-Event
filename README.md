@@ -227,6 +227,8 @@ $\text{\color{#174D35}{✮}}$ <a href="https://github.com/god-of-stories" style=
 
 $\text{\color{#C62828}{✮}}$ <a href="https://github.com/simonzky" style="color: #456FB0;">@𝐬𝐢𝐦𝐨𝐧𝐳𝐤𝐲</a> $\text{\color{#C62828}{𝐢𝐬} \color{#B94B50}{𝐊𝐧𝐨𝐱} \color{#929FB3}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#456FB0}{𝐂𝐚𝐩𝐭𝐚𝐢𝐧} \color{#2457A6}{𝐀𝐦𝐞𝐫𝐢𝐜𝐚!} \color{#2457A6}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
 
+$\text{\color{#1e95e1}{✮}}$ <a href="https://github.com/NatureRos3" style="color: #1e95e1;">@𝐍𝐚𝐭𝐮𝐫𝐞𝐑𝐨𝐬𝟑</a> $\text{\color{#1e95e1}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐚𝐦𝐚𝐭𝐨𝐏! [𝐔𝐔𝐒𝐌𝐏]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -324,6 +326,9 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/3e/Moodle_Icon_Zombie.png?20230518201408" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
+
+$\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
+
 
 $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
 
