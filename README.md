@@ -35,8 +35,8 @@ $\text{\color{#E57313}{lonely}} \quad \qquad \qquad \text{\color{#E16C12}{place}
 $\text{\color{#DD6411}{where}} \qquad \quad \text{\color{#D95D10}{you're}}$
 $\text{\color{#D4550F}{about}} \qquad \qquad \text{\color{#CF500E}{to}}$
 $\text{\color{#CA4B0D}{die}} \quad \quad \text{\color{#C6470C}{- miserable}}$
-$\text{\color{#C6470C}{and}} \qquad \qquad \text{\color{#C6470C}{alone! ”}} \quad \text{\color{#C6470C}{— Spiffo}}$
-$\text{\color{#C6470C}{the Raccoon}}$
+$\text{\color{#58330f}{and}} \qquad \qquad \text{\color{#58330f}{alone! ”}} \quad \text{\color{#58330f}{— Spiffo}}$
+$\text{\color{#58330f}{the Raccoon}}$
 
 </p>
 
