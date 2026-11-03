@@ -342,9 +342,8 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/3e/Moodle_Icon_Zombie.png?20230518201408" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
-$\text{\color{#DDBB34}{𖥻 ׁ ׅ 𝐒𝐎𝐋𝐀𝐑𝐈𝐒 ᝰ.}}$ $\text{\color{#E5BE38}{𝐓𝐞𝐨}}$ $\text{\color{#E9C85B}{𝐢𝐬}}$ $\text{\color{#DCCB8D}{𝐊𝐧𝐨𝐱}}$ $\text{\color{#C3C5A9}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A5BEC0}{𝐌𝐞𝐩𝐡𝐢𝐥𝐞𝐬}}$ $\text{\color{#8CAAB9}{𝐓𝐡𝐞}}$ $\text{\color{#AFC8CB}{𝐃𝐚𝐫𝐤!}}$ <br>
-$\text{\color{#FFDC19}{[𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠 𝟐𝟎𝟎𝟔]}}$
-
+$\text{\color{#DDBB34}{𖥻 ׁ ׅ 𝐒𝐎𝐋𝐀𝐑𝐈𝐒 ᝰ.}}$ $\text{\color{#E5BE38}{𝐓𝐞𝐨}}$ $\text{\color{#E9C85B}{𝐢𝐬}}$ $\text{\color{#DCCB8D}{𝐊𝐧𝐨𝐱}}$ $\text{\color{#C3C5A9}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A5BEC0}{𝐌𝐞𝐩𝐡𝐢𝐥𝐞𝐬}}$ $\text{\color{#8CAAB9}{𝐓𝐡𝐞}}$ $\text{\color{#8299A8}{𝐃𝐚𝐫𝐤!}}$ <br>
+$\text{\color{#778B9B}{[𝐒𝐨𝐧𝐢𝐜}}$ $\text{\color{#687D8C}{𝐓𝐡𝐞}}$ $\text{\color{#586D7B}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠}}$ $\text{\color{#414F5C}{𝟐𝟎𝟎𝟔]}}$
  
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
