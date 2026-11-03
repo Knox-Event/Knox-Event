@@ -17,6 +17,16 @@ $\text{\color{#4d7c00}{Spiffo The Raccoon image sources are in}}$ <a href="https
     Introductions
 </!-->
 
+<div align="center">
+
+$\text{\color{#F6A52B}{𝐋𝐞𝐭'𝐬}} \; \text{\color{#F3A027}{𝐠𝐞𝐭}} \; \text{\color{#F09A20}{𝐚}} \; \text{\color{#EE911B}{𝐛𝐢𝐫𝐝'𝐬}} \; \text{\color{#EB8918}{𝐞𝐲𝐞}} \; \text{\color{#E98117}{𝐯𝐢𝐞𝐰}} \; \text{\color{#E77A15}{𝐨𝐟}} \; \text{\color{#E57313}{𝐭𝐡𝐞}} \; \text{\color{#E16C12}{𝐥𝐨𝐧𝐞𝐥𝐲}} \; \text{\color{#DD6411}{𝐩𝐥𝐚𝐜𝐞}} \; \text{\color{#D95D10}{𝐰𝐡𝐞𝐫𝐞}} \; \text{\color{#D4550F}{𝐲𝐨𝐮'𝐫𝐞}} \; \text{\color{#CF500E}{𝐚𝐛𝐨𝐮𝐭}} \; \text{\color{#CA4B0D}{𝐭𝐨}} \; \text{\color{#C6470C}{𝐝𝐢𝐞}} \; \text{\color{#C6470C}{-}} \; \text{\color{#D0520E}{𝐦𝐢𝐬𝐞𝐫𝐚𝐛𝐥𝐞}} \; \text{\color{#D95D10}{𝐚𝐧𝐝}} \; \text{\color{#E57313}{𝐚𝐥𝐨𝐧𝐞!}}$
+
+<br>
+
+$\text{\color{#D95D10}{— 𝐒𝐩𝐢𝐟𝐟𝐨 𝐭𝐡𝐞 𝐑𝐚𝐜𝐜𝐨𝐨𝐧}}$
+
+</p>
+
 <div align="left">
 
 <img width="120" height="130" src="https://pzwiki.net/w/images/0/0d/Be_precise.png" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled293.png" />
