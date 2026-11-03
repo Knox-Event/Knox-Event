@@ -354,7 +354,7 @@ $\text{\color{#9673B9}{＜ ♦}}$ <a href="https://github.com/doomfraid" style="
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝}}$<br>
 $\text{\color{#f80202}{𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$<br>
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 !}}$<br>
+$\text{\color{#f80202}{^_^}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 !}}$<br>
 $\text{\color{#f80202}{         [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$<br>
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/Blame-John" style="color: #B5C900;">@𝐁𝐥𝐚𝐦𝐞-𝐉𝐨𝐡𝐧</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐞𝐝𝐥𝐞𝐭𝐬𝐤𝐲! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
