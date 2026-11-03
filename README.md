@@ -238,6 +238,14 @@ $\text{\color{#C62828}{✮}}$ <a href="https://github.com/simonzky" style="color
 
 $\text{\color{#1e95e1}{✮}}$ <a href="https://github.com/NatureRos3" style="color: #1e95e1;">@𝐍𝐚𝐭𝐮𝐫𝐞𝐑𝐨𝐬𝟑</a> $\text{\color{#1e95e1}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐚𝐦𝐚𝐭𝐨𝐏! [𝐔𝐔𝐒𝐌𝐏]}}$
 
+$\text{\color{#ACFF95}{✮}}$ <a href="https://github.com/naturalharmoniaa" style="color: #ACFF95;">@𝐧𝐚𝐭𝐮𝐫𝐚𝐥𝐡𝐚𝐫𝐦𝐨𝐧𝐢𝐚𝐚</a> $\text{\color{#ACFF95}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐭𝐮𝐫𝐚𝐥 𝐇𝐚𝐫𝐦𝐨𝐧𝐢𝐚 𝐆𝐫𝐨𝐩𝐢𝐮𝐬!}}$<br>
+$\text{\color{#ACFF95}{[𝐏𝐨𝐤𝐞́𝐦𝐨𝐧]}}$
+
+$\text{\color{#625731}{✮}}$ <a href="https://github.com/iceoIated" style="color: #625731;">@𝐢𝐜𝐞𝐨𝐈𝐚𝐭𝐞𝐝</a> $\text{\color{#625731}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐬𝐡𝐥𝐲𝐧 𝐁𝐚𝐧𝐧𝐞𝐫!}}$ <br>
+$\text{\color{#625731}{[𝐒𝐜𝐡𝐨𝐨𝐥 𝐁𝐮𝐬 𝐆𝐫𝐚𝐯𝐞𝐲𝐚𝐫𝐝]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/JJesters" style="color: #FFDC19;">@𝐉𝐉𝐞𝐬𝐭𝐞𝐫𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐧𝐝𝐚𝐲! [𝐇𝐨𝐧𝐤𝐚𝐢: 𝐒𝐭𝐚𝐫 𝐑𝐚𝐢𝐥]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -365,7 +373,9 @@ $\text{\color{#f80202}{†}}$ <a href="https://github.com/AutopsiedGore" style="
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/sw33tsug4rcookie" style="color: #B5C900;">@𝐬𝐰𝟑𝟑𝐭𝐬𝐮𝐠𝟒𝐫𝐜𝐨𝐨𝐤𝐢𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐆𝐢𝐧𝐠𝐞𝐫! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #B5C900;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
+$\text{\color{#ab831f}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #ab831f;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#ab831f}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
+$\text{\color{#25ba8d}{𝐀𝐧𝐝 𝐈𝐭𝐨𝐬𝐡𝐢}}$ $\text{\color{#17786d}{𝐑𝐢𝐧! [𝐁𝐥𝐮𝐞}}$
+$\text{\color{#175478}{𝐋𝐨𝐜𝐤]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/DocHale" style="color: #B5C900;">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]}}$
 
@@ -396,6 +406,8 @@ $\text{\color{#51293d}{[𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂�
 $\text{\color{#95466D}{꒰ ✦ ꒱}}$ <a href="https://github.com/KayleighJudas" style="color: #95466D;">@𝐊𝐚𝐲𝐥𝐞𝐢𝐠𝐡𝐉𝐮𝐝𝐚𝐬</a> $\text{\color{#95466D}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐕𝐢𝐤𝐭𝐨𝐫! [𝐀𝐫𝐜𝐚𝐧𝐞]}}$
 
 $\text{\color{#f80202}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jsschlatt" style="color: #B5C900;">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭! [𝐌𝐂𝐘𝐓]}}$
+
+$\text{\color{#ffb7ce}{†}}$ <a href="https://github.com/RadiantCity" style="color: #ffb7ce;">@𝐑𝐚𝐝𝐢𝐚𝐧𝐭𝐂𝐢𝐭𝐲</a> $\text{\color{#ffb7ce}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐪𝐢𝐞! [𝐈𝐧𝐬𝐨𝐦𝐧𝐢𝐚𝐜𝐤𝐬]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
