@@ -5,7 +5,11 @@
     My style are almost simplistic so there's nothing to WOW so much here
     Coding all these by myself does makes me shove a hand into my head though, youre welcome to check them out below
 </!-->
+<div align="right">
 
+<img width="264" height="348" alt="spiffo pony" src="" />
+
+</p>
 <div align="center">
 
 <img width="700" height="400" alt="dont be a hero." src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
@@ -118,6 +122,15 @@ $\text{\color{#4d7c00}{The nomination list are updated regularly , do not}}$<br>
 <div align="left">
 
 <br> <img width="80" height="100" src="https://pzwiki.net/w/images/2/2a/Spiffoguard_transparent1.png?20240626215029" /> <img height="70" width="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled294.png" />
+
+<table align="right" width="40%">
+  <tr>
+    <td align="center">
+        <img src="https://github.com/user-attachments/assets/c1100a9d-89f5-4b4f-b908-63cc22d44f30" height="258" width="210">
+      </a>
+    </td>
+  </tr>
+</table>
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/c6772406.gif) $\text{\color{#4d7c00}{If a character is already taken, please choose}}$<br>
 $\text{\color{#4d7c00}{         another. First come, first serve.}}$<br>
