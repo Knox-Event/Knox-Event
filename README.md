@@ -239,7 +239,7 @@ $\text{\color{#C62828}{✮}}$ <a href="https://github.com/simonzky" style="color
 $\text{\color{#1e95e1}{✮}}$ <a href="https://github.com/NatureRos3" style="color: #1e95e1;">@𝐍𝐚𝐭𝐮𝐫𝐞𝐑𝐨𝐬𝟑</a> $\text{\color{#1e95e1}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐚𝐦𝐚𝐭𝐨𝐏! [𝐔𝐔𝐒𝐌𝐏]}}$
 
 $\text{\color{#ACFF95}{✮}}$ <a href="https://github.com/naturalharmoniaa" style="color: #ACFF95;">@𝐧𝐚𝐭𝐮𝐫𝐚𝐥𝐡𝐚𝐫𝐦𝐨𝐧𝐢𝐚𝐚</a> $\text{\color{#ACFF95}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐭𝐮𝐫𝐚𝐥 𝐇𝐚𝐫𝐦𝐨𝐧𝐢𝐚 𝐆𝐫𝐨𝐩𝐢𝐮𝐬!}}$<br>
-$\text{\color{#ACFF95}{[𝐏𝐨𝐤𝐞́𝐦𝐨𝐧]}}$
+$\text{\color{#ACFF95}{[𝐏𝐨𝐤é𝐦𝐨𝐧]}}$
 
 $\text{\color{#625731}{✮}}$ <a href="https://github.com/iceoIated" style="color: #625731;">@𝐢𝐜𝐞𝐨𝐈𝐚𝐭𝐞𝐝</a> $\text{\color{#625731}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐬𝐡𝐥𝐲𝐧 𝐁𝐚𝐧𝐧𝐞𝐫!}}$ <br>
 $\text{\color{#625731}{[𝐒𝐜𝐡𝐨𝐨𝐥 𝐁𝐮𝐬 𝐆𝐫𝐚𝐯𝐞𝐲𝐚𝐫𝐝]}}$
