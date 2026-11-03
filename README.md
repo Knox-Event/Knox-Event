@@ -342,6 +342,33 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 
 <img width="100" height="100" src="https://pzwiki.net/w/images/3/3e/Moodle_Icon_Zombie.png?20230518201408" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
 
+$\text{\color{#DDBB34}{𖥻 ׁ ׅ  SOLARIS ᝰ.}}$ 
+$\text{\color{#E8B92B}{𝐓}}$
+$\text{\color{#F0A92B}{𝐞}}$
+$\text{\color{#F18B32}{𝐨}}$
+$\text{\color{#ED6535}{𝐢}}$
+$\text{\color{#E7473D}{𝐬}}$
+$\text{\color{#D92F46}{𝐊}}$
+$\text{\color{#BD304F}{𝐧}}$
+$\text{\color{#A43B5D}{𝐨}}$
+$\text{\color{#864A70}{𝐱}}$
+$\text{\color{#70617D}{𝐄}}$
+$\text{\color{#657D91}{𝐯}}$
+$\text{\color{#668F9D}{𝐞}}$
+$\text{\color{#739FA6}{𝐧}}$
+$\text{\color{#8EADB0}{𝐭}}$
+$\text{\color{#AFC1BF}{'}}$
+$\text{\color{#B8C8C5}{𝐬}}$
+$\text{\color{#AFC4C5}{𝐌}}$
+$\text{\color{#9DBBC2}{𝐞}}$
+$\text{\color{#8BAFBA}{𝐩}}$
+$\text{\color{#7DA4B2}{𝐡}}$
+$\text{\color{#7296A8}{𝐢}}$
+$\text{\color{#718A9D}{𝐥}}$
+$\text{\color{#8499A6}{𝐞}}$
+$\text{\color{#A1B4B6}{𝐬}}$
+$\text{\color{#FFDC19}{[𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠 𝟐𝟎𝟎𝟔]}}$
+
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
 $\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
