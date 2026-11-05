@@ -246,6 +246,10 @@ $\text{\color{#625731}{[𝐒𝐜𝐡𝐨𝐨𝐥 𝐁𝐮𝐬 𝐆𝐫𝐚𝐯�
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/JJesters" style="color: #FFDC19;">@𝐉𝐉𝐞𝐬𝐭𝐞𝐫𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐧𝐝𝐚𝐲! [𝐇𝐨𝐧𝐤𝐚𝐢: 𝐒𝐭𝐚𝐫 𝐑𝐚𝐢𝐥]}}$
 
+$\text{\color{#5C82A6}{꒰🩸꒱}}$ <a href="https://github.com/HerWordsKill" style="color: #5C82A6;">@𝐇𝐞𝐫𝐖𝐨𝐫𝐝𝐬𝐊𝐢𝐥𝐥</a> $\text{\color{#5C82A6}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐢𝐫𝐚! [𝐓𝐨𝐠𝐚𝐢𝐧𝐮 𝐍𝐨 𝐂𝐡𝐢]}}$
+
+$\text{\color{#FFDC19}{メ}}$ <a href="https://github.com/tomatosu" style="color: #FFDC19;">@𝐭𝐨𝐦𝐚𝐭𝐨𝐬𝐮</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐚𝐬𝐮𝐤𝐞 𝐔𝐜𝐡𝐢𝐡𝐚! [𝐍𝐚𝐫𝐮𝐭𝐨]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -328,6 +332,8 @@ $\text{\color{#760029}{☣}}$ <a href="https://github.com/Rydenyuri" style="colo
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/qnakin" style="color: #B5C900;">@𝐪𝐧𝐚𝐤𝐢𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐚𝐤𝐢𝐧 𝐒𝐤𝐲𝐰𝐚𝐥𝐤𝐞𝐫! [𝐒𝐭𝐚𝐫 𝐖𝐚𝐫𝐬]}}$
 
 $\text{\color{#E73312}{૮˶- ﻌ -˶ა⌒﹚ᦱ}}$ <a href="https://github.com/spam-tune" style="color: #E73312;">@𝐬𝐩𝐚𝐦-𝐭𝐮𝐧𝐞</a> $\text{\color{#E73312}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐞𝐧𝐧𝐚 + 𝐒𝐩𝐚𝐦𝐭𝐨𝐧! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞]}}$
+
+$\text{\color{#8B0000}{꒰ 🗡️ ꒱}}$ <a href="https://github.com/CrisisShow" style="color: #8B0000;">@𝐂𝐫𝐢𝐬𝐢𝐬𝐒𝐡𝐨𝐰</a> $\text{\color{#8B0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐢𝐤𝐢! [𝐓𝐨𝐠𝐚𝐢𝐧𝐮 𝐍𝐨 𝐂𝐡𝐢]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
