@@ -429,6 +429,8 @@ $\text{\color{#f80202}{꒰ 🪓 ꒱}}$ <a href="https://github.com/sharpfrostche
 
 $\text{\color{#9B4935}{꒰❄๋࣭ 𝐆𝐞𝐧𝐞𝐫𝐚𝐥} \color{#A6533B}{𝐖𝐢𝐧𝐭𝐞𝐫} \color{#B36A48}{☕⭑꒱}}$ <a href="https://github.com/witchinghourx" style="color: #854638;">@𝐰𝐢𝐭𝐜𝐡𝐢𝐧𝐠𝐡𝐨𝐮𝐫𝐱</a> $\text{\color{#A6533B}{𝐢𝐬} \color{#9B4935}{𝐊𝐧𝐨𝐱} \color{#914333}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#873D36}{𝐑𝐢𝐜𝐡𝐞𝐡!} \color{#783536}{[𝐖𝐢𝐭𝐜𝐡} \color{#692F35}{𝐇𝐚𝐭} \color{#592A32}{𝐀𝐭𝐞𝐥𝐢𝐞𝐫]}}$
 
+$\text{\color{#6cc0f5}{˵¬ᴗ¬˵}}$ <a href="https://github.com/9i71" style="color: #6cc0f5;">@𝟗𝐢𝟕𝟏</a> $\text{\color{#6cc0f5}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐞𝐛𝐞𝐜𝐜𝐚! [𝐌𝐮𝐫𝐝𝐞𝐫 𝐃𝐫𝐨𝐧𝐞𝐬]}}$
+
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
