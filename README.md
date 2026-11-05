@@ -250,6 +250,8 @@ $\text{\color{#5C82A6}{꒰🩸꒱}}$ <a href="https://github.com/HerWordsKill" s
 
 $\text{\color{#FFDC19}{メ}}$ <a href="https://github.com/tomatosu" style="color: #FFDC19;">@𝐭𝐨𝐦𝐚𝐭𝐨𝐬𝐮</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐚𝐬𝐮𝐤𝐞 𝐔𝐜𝐡𝐢𝐡𝐚! [𝐍𝐚𝐫𝐮𝐭𝐨]}}$
 
+$\text{\color{#38220A}{✮}}$ <a href="https://github.com/i-Zach" style="color: #38220A;">@𝐢-𝐙𝐚𝐜𝐡</a> $\text{\color{#38220A}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐨𝐰𝐛𝐨𝐲 𝟎𝟎𝟕𝐧𝟕!}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -334,6 +336,8 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/qnakin" style="color: 
 $\text{\color{#E73312}{૮˶- ﻌ -˶ა⌒﹚ᦱ}}$ <a href="https://github.com/spam-tune" style="color: #E73312;">@𝐬𝐩𝐚𝐦-𝐭𝐮𝐧𝐞</a> $\text{\color{#E73312}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐞𝐧𝐧𝐚 + 𝐒𝐩𝐚𝐦𝐭𝐨𝐧! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞]}}$
 
 $\text{\color{#8B0000}{꒰ 🗡️ ꒱}}$ <a href="https://github.com/CrisisShow" style="color: #8B0000;">@𝐂𝐫𝐢𝐬𝐢𝐬𝐒𝐡𝐨𝐰</a> $\text{\color{#8B0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐢𝐤𝐢! [𝐓𝐨𝐠𝐚𝐢𝐧𝐮 𝐍𝐨 𝐂𝐡𝐢]}}$
+
+$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/PlanticNurii" style="color: #B5C900;">@𝐏𝐥𝐚𝐧𝐭𝐢𝐜𝐍𝐮𝐫𝐢𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐝𝐫𝐞𝐰! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
