@@ -252,6 +252,12 @@ $\text{\color{#FFDC19}{メ}}$ <a href="https://github.com/tomatosu" style="color
 
 $\text{\color{#38220A}{✮}}$ <a href="https://github.com/i-Zach" style="color: #38220A;">@𝐢-𝐙𝐚𝐜𝐡</a> $\text{\color{#38220A}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐨𝐰𝐛𝐨𝐲 𝟎𝟎𝟕𝐧𝟕!}}$
 
+$\text{\color{#7600bc}{✮}}$ <a href="https://github.com/W1TCHK1LL3R" style="color: #7600bc;">@𝐖𝟏𝐓𝐂𝐇𝐊𝟏𝐋𝐋𝟑𝐑</a> $\text{\color{#7600bc}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐚𝐭𝐧𝐚𝐩! [𝐏𝐨𝐩𝐩𝐲 𝐏𝐥𝐚𝐲𝐭𝐢𝐦𝐞]}}$
+
+$\text{\color{#230506}{꒰🍕꒱}}$ <a href="https://github.com/NikaMokochi" style="color: #230506;">@𝐍𝐢𝐤𝐚𝐌𝐨𝐤𝐨𝐜𝐡𝐢</a> $\text{\color{#230506}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐢𝐳𝐳𝐚 𝐆𝐮𝐲! [𝐏𝐢𝐳𝐳𝐚 𝐆𝐚𝐦𝐞 𝐁𝐞𝐭𝐚]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/angelicr0t" style="color: #FFDC19;">@𝐚𝐧𝐠𝐞𝐥𝐢𝐜𝐫𝟎𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐮𝐫𝐬𝐞 𝐇𝐚𝐫𝐫𝐨𝐰! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -431,7 +437,9 @@ $\text{\color{#9B4935}{꒰❄๋࣭ 𝐆𝐞𝐧𝐞𝐫𝐚𝐥} \color{#A6533B
 
 $\text{\color{#6cc0f5}{˵¬ᴗ¬˵}}$ <a href="https://github.com/9i71" style="color: #6cc0f5;">@𝟗𝐢𝟕𝟏</a> $\text{\color{#6cc0f5}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐞𝐛𝐞𝐜𝐜𝐚! [𝐌𝐮𝐫𝐝𝐞𝐫 𝐃𝐫𝐨𝐧𝐞𝐬]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#f80202}{†}}$ <a href="https://github.com/cherrip1e" style="color: #B5C900;">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
+
+$\text{\color{#4ac925}{†}}$ <a href="https://github.com/erisolsprites" style="color: #4ac925;">@𝚎𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎𝚜</a> $\text{\color{#4ac925}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙴𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
