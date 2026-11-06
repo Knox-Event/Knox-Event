@@ -291,6 +291,7 @@ $\text{\color{#c7b360}{𝐀}\color{#c7b360}{𝐧}\color{#a98f5c}{𝐝} \color{#a
 $\text{\color{#a10000}{꒰ ♈︎ ꒱}}$ <a href="https://github.com/spikedfist" style="color: #a10000;">@𝚜𝚙𝚒𝚔𝚎𝚍𝚏𝚒𝚜𝚝</a> $\text{\color{#a10000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙰𝚛𝚊𝚍𝚒𝚊 𝙼𝚎𝚐𝚒𝚍𝚘!}}$ <br>
 $\text{\color{#a10000}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
+$\text{\color{#a1a100}{﹙♊︎﹚}}$ <a href="https://github.com/TvvinArmageddons" style="color: #a1a100;">@𝚃𝚟𝚟𝚒𝚗𝙰𝚛𝚖𝚊𝚐𝚎𝚍𝚍𝚘𝚗𝚜</a> $\text{\color{#a1a100}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝚂𝚘𝚕𝚕𝚞𝚡 𝙲𝚊𝚙𝚝𝚘𝚛! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚!}}$<br>
 $\text{\color{#B5C900}{[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$<br>
@@ -352,6 +353,12 @@ $\text{\color{#8B0000}{꒰ 🗡️ ꒱}}$ <a href="https://github.com/CrisisShow
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/PlanticNurii" style="color: #B5C900;">@𝐏𝐥𝐚𝐧𝐭𝐢𝐜𝐍𝐮𝐫𝐢𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐝𝐫𝐞𝐰! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]}}$
 
+$\text{\color{#2BBF9F}{𖦏}}$ <a href="https://github.com/elli0t_thec00ll" style="color: #2BBF9F;">@𝐞𝐥𝐥𝐢𝟎𝐭_𝐭𝐡𝐞𝐜𝟎𝟎𝐥𝐥</a> $\text{\color{#2BBF9F}{𝐢𝐬} \color{#27A98C}{𝐊𝐧𝐨𝐱} \color{#22937C}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#1E7D6C}{𝐒𝐜𝐲𝐭𝐡𝐞} \color{#19675C}{𝐑𝐢𝐟𝐥𝐞!} \color{#145C50}{[𝐏𝐡𝐢𝐠𝐡𝐭𝐢𝐧𝐠]}}$ <br>
+$\text{\color{#2BBF9F}{𝐀𝐧𝐝} \color{#22937C}{𝐓𝐡𝐞} \color{#19675C}{𝐌𝐨𝐬𝐭} \color{#145C50}{𝐖𝐚𝐧𝐭𝐞𝐝} \color{#145C50}{♪}}$ <br>
+$\text{\color{#2BBF9F}{𝐁𝐲} \color{#19675C}{𝐁𝐨𝐠𝐠𝐢𝐨!}}$
+
+$\text{\color{#B5C900}{꒰ 🍀 ꒱}}$ <a href="https://github.com/futuristic-maniac" style="color: #B5C900;">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]}}$
+
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 
@@ -373,6 +380,8 @@ $\text{\color{#DDBB34}{𖥻 ׁ ׅ 𝐒𝐎𝐋𝐀𝐑𝐈𝐒 ᝰ.}}$ $\text{\c
 $\text{\color{#778B9B}{[𝐒𝐨𝐧𝐢𝐜}}$ $\text{\color{#687D8C}{𝐓𝐡𝐞}}$ $\text{\color{#586D7B}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠}}$ $\text{\color{#414F5C}{𝟐𝟎𝟎𝟔]}}$
  
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
+
+$\text{\color{#4ac925}{†}}$ <a href="https://github.com/erisolsprites" style="color: #4ac925;">@𝚎𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎𝚜</a> $\text{\color{#4ac925}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙴𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 $\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
 
@@ -447,8 +456,6 @@ $\text{\color{#9B4935}{꒰❄๋࣭ 𝐆𝐞𝐧𝐞𝐫𝐚𝐥} \color{#A6533B
 $\text{\color{#6cc0f5}{˵¬ᴗ¬˵}}$ <a href="https://github.com/9i71" style="color: #6cc0f5;">@𝟗𝐢𝟕𝟏</a> $\text{\color{#6cc0f5}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐞𝐛𝐞𝐜𝐜𝐚! [𝐌𝐮𝐫𝐝𝐞𝐫 𝐃𝐫𝐨𝐧𝐞𝐬]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/cherrip1e" style="color: #B5C900;">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
-
-$\text{\color{#4ac925}{†}}$ <a href="https://github.com/erisolsprites" style="color: #4ac925;">@𝚎𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎𝚜</a> $\text{\color{#4ac925}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙴𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
