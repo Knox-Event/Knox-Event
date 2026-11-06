@@ -399,6 +399,8 @@ $\text{\color{#ab831f}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" st
 $\text{\color{#25ba8d}{𝐀𝐧𝐝 𝐈𝐭𝐨𝐬𝐡𝐢}}$ $\text{\color{#17786d}{𝐑𝐢𝐧! [𝐁𝐥𝐮𝐞}}$
 $\text{\color{#175478}{𝐋𝐨𝐜𝐤]}}$
 
+$\text{\color{#f80202}{꒰ 🔪🩸🌹 ꒱}}$ <a href="https://github.com/dead-blooming-roses" style="color: #B5C900;">@𝐝𝐞𝐚𝐝-𝐛𝐥𝐨𝐨𝐦𝐢𝐧𝐠-𝐫𝐨𝐬𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐡𝐨𝐬𝐭𝐟𝐚𝐜𝐞!}}$
+
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/DocHale" style="color: #B5C900;">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/d0ombringer" style="color: #B5C900;">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
