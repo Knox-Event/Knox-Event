@@ -160,6 +160,10 @@ $\text{\color{#4d7c00}{e.g tcoaal if not obvious.}}$<br>
 
 $\text{\color{#A82020}{♘}}$ <a href="https://github.com/mrfishsandwhich">@𝐦𝐫𝐟𝐢𝐬𝐡𝐬𝐚𝐧𝐝𝐰𝐡𝐢𝐜𝐡</a> $\text{\color{#B52B24}{𝐢𝐬} \color{#C43E29}{𝐊𝐧𝐨𝐱} \color{#D05B32}{𝐄𝐯𝐞𝐧𝐭'}\color{#B8793D}{𝐬} \color{#A36F3C}{𝐋𝐨𝐮𝐢𝐬!} \color{#754D32}{[𝐋𝐞𝐟𝐭} \color{#51372C}{𝟒 𝐃𝐞𝐚𝐝]}}$
 
+$\text{\color{#df5b3b}{.ᐟ}}$ <a href="https://github.com/nightsdeadbody" style="color: #df5b3b;">@𝐧𝐢𝐠𝐡𝐭𝐬𝐝𝐞𝐚𝐝𝐛𝐨𝐝𝐲</a> $\text{\color{#df5b3b}{Σ﹙°△° ꪱꪱꪱ﹚}}$ $\text{\color{#df5b3b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐨𝐮𝐥 𝐁𝐨𝐲𝐟𝐫𝐢𝐞𝐧𝐝!}}$ <br>
+$\text{\color{#df5b3b}{[𝐅𝐍𝐅 𝐂𝐨𝐫𝐫𝐮𝐩𝐭𝐢𝐨𝐧] 𝐀𝐧𝐝 𝐃𝐢𝐬𝐜𝐡𝐚𝐫𝐠𝐞 𝟐𝟎𝟐𝟔}}$ <br>
+$\text{\color{#df5b3b}{𝐛𝐲 𝐒𝐚𝐬𝐭𝐞𝐫 𝐌𝐮𝐬𝐢𝐜!}}$ <br>
+$\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: 𝐀 𝐆𝐮𝐧}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
 
@@ -257,6 +261,8 @@ $\text{\color{#7600bc}{✮}}$ <a href="https://github.com/W1TCHK1LL3R" style="co
 $\text{\color{#230506}{꒰🍕꒱}}$ <a href="https://github.com/NikaMokochi" style="color: #230506;">@𝐍𝐢𝐤𝐚𝐌𝐨𝐤𝐨𝐜𝐡𝐢</a> $\text{\color{#230506}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐢𝐳𝐳𝐚 𝐆𝐮𝐲! [𝐏𝐢𝐳𝐳𝐚 𝐆𝐚𝐦𝐞 𝐁𝐞𝐭𝐚]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/angelicr0t" style="color: #FFDC19;">@𝐚𝐧𝐠𝐞𝐥𝐢𝐜𝐫𝟎𝐭</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐮𝐫𝐬𝐞 𝐇𝐚𝐫𝐫𝐨𝐰! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
+
+$\text{\color{#36A852}{✮}}$ <a href="https://github.com/Yoshida-zawa" style="background: linear-gradient(90deg, #269B45, #389E40, #659E35, #A68D2B, #D97825, #F06420); -webkit-background-clip: text; -webkit-text-fill-color: transparent; color: transparent;">@𝐘𝐨𝐬𝐡𝐢𝐝𝐚-𝐳𝐚𝐰𝐚</a> $\text{\color{#269B45}{𝐢}\color{#319D42}{𝐬} \color{#419E3D}{𝐊}\color{#549E39}{𝐧}\color{#689D35}{𝐨}\color{#7D9931}{𝐱} \color{#92932E}{𝐄}\color{#A68D2B}{𝐯}\color{#B88729}{𝐞}\color{#CA8027}{𝐧}\color{#D97825}{𝐭}\color{#E27123}{'}\color{#E96B22}{𝐬} \color{#E96B22}{𝐈}\color{#DF7223}{𝐳}\color{#D57825}{𝐮}\color{#CA8027}{𝐤}\color{#BD8829}{𝐮} \color{#AE902D}{𝐌}\color{#9B962F}{𝐢}\color{#879B32}{𝐝}\color{#719D34}{𝐨}\color{#5C9F38}{𝐫}\color{#489F3C}{𝐢}\color{#369E41}{𝐲}\color{#269B45}{𝐚}\color{#269B45}{!} \color{#269B45}{[}\color{#659E35}{𝐌}\color{#B88729}{𝐇}\color{#F06420}{𝐀}\color{#F06420}{]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
