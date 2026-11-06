@@ -98,7 +98,7 @@ $\text{\color{#4d7c00}{If there are any duplicates that was added in the}}$<br>
       </a>
       <br>
       <a href="https://github.com/hwobae">
-        <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled306.png" width="140">
+        <img src="https://file.garden/ZroW4OcqSGtS0a5j/Umaybe.png" width="140">
       </a>
     </td>
   </tr>
