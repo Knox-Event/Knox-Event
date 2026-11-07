@@ -6,6 +6,16 @@
     Coding all these by myself does makes me want to dig my hand into my head though, youre welcome to check them out below
 </!-->
 
+<div align="left">
+
+$\text{\color{#880808}{Knox} \color{#A71919}{Event} \color{#C52A2A}{Update} \color{#EE4B2B}{Log:}}$ <br>
+
+$\text{\color{#B22222}{November} \color{#D93636}{8th.}}$ <br>
+
+![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg}}$ $\text{\color{#B52B2B}{We're} \color{#C53636}{on} \color{#D04444}{a} \color{#DC3D32}{temporary break}}$ $\text{\color{#C53636}{from} \color{#B52B2B}{adding} \color{#AA2020}{new} \color{#991414}{nominations} \color{#880808}{currently,}}$ $\text{\color{#991414}{but} \color{#AA2020}{it's} \color{#B52B2B}{okay} \color{#C53636}{to} \color{#D04444}{send}}$ $\text{\color{#DC3D32}{in} \color{#D04444}{yours} \color{#EE4B2B}{right now!}}$ $\text{\color{#B52B2B}{You} \color{#AA2020}{just} \color{#991414}{need}}$ $\text{\color{#880808}{to} \color{#991414}{wait}}$ $\text{\color{#AA2020}{for} \color{#B52B2B}{approval} \color{#C53636}{once}}$ $\text{\color{#D04444}{we're} \color{#DC3D32}{back} \color{#D04444}{to} \color{#C53636}{updating}}$ $\text{\color{#B52B2B}{the} \color{#AA2020}{nomination} \color{#991414}{list} \color{#880808}{again.}}$ $\text{\color{#B52B2B}{Okay,} \color{#AA2020}{ty...}}$ (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)
+
+<br>
+
 <div align="center">
 
 <img width="700" height="400" alt="dont be a hero." src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
