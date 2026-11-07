@@ -381,6 +381,8 @@ $\text{\color{#778B9B}{[𝐒𝐨𝐧𝐢𝐜}}$ $\text{\color{#687D8C}{𝐓𝐡�
  
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
+$\text{\color{#9673B9}{＜ ♦}}$ <a href="https://github.com/doomfraid" style="color: #C0A0D8;">@𝐝𝐨𝐨𝐦𝐟𝐫𝐚𝐢𝐝</a> $\text{\color{#79518F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#563568}{𝚁𝚘𝚜𝚎 𝙻𝚊𝚕𝚘𝚗𝚍𝚎!}}$ $\text{\color{#A47ABF}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔] ＞}}$
+
 $\text{\color{#4ac925}{†}}$ <a href="https://github.com/erisolsprites" style="color: #4ac925;">@𝚎𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎𝚜</a> $\text{\color{#4ac925}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝙴𝚛𝚒𝚜𝚘𝚕𝚜𝚙𝚛𝚒𝚝𝚎! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 $\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
@@ -394,8 +396,6 @@ $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="colo
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮!}}$<br>
 $\text{\color{#f80202}{[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$<br>
-
-$\text{\color{#9673B9}{＜ ♦}}$ <a href="https://github.com/doomfraid" style="color: #C0A0D8;">@𝐝𝐨𝐨𝐦𝐟𝐫𝐚𝐢𝐝</a> $\text{\color{#79518F}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#563568}{𝚁𝚘𝚜𝚎 𝙻𝚊𝚕𝚘𝚗𝚍𝚎!}}$ $\text{\color{#A47ABF}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔] ＞}}$
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝}}$<br>
 $\text{\color{#f80202}{𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$<br>
