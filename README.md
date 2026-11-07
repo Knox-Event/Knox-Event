@@ -10,9 +10,11 @@
 
 $\text{\color{#880808}{Knox} \color{#A71919}{Event} \color{#C52A2A}{Update} \color{#EE4B2B}{Log:}}$ <br>
 
-$\text{\color{#B22222}{November} \color{#D93636}{8th.}}$ <br>
+$\text{\color{#B22222}{November} \color{#D93636}{8.}}$ <br>
 
-![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg}}$ $\text{\color{#B52B2B}{We're} \color{#C53636}{on} \color{#D04444}{a} \color{#DC3D32}{temporary break}}$ $\text{\color{#C53636}{from} \color{#B52B2B}{adding} \color{#AA2020}{new} \color{#991414}{nominations} \color{#880808}{currently,}}$ $\text{\color{#991414}{but} \color{#AA2020}{it's} \color{#B52B2B}{okay} \color{#C53636}{to} \color{#D04444}{send}}$ $\text{\color{#DC3D32}{in} \color{#D04444}{yours} \color{#EE4B2B}{right now!}}$ $\text{\color{#B52B2B}{You} \color{#AA2020}{just} \color{#991414}{need}}$ $\text{\color{#880808}{to} \color{#991414}{wait}}$ $\text{\color{#AA2020}{for} \color{#B52B2B}{approval} \color{#C53636}{once}}$ $\text{\color{#D04444}{we're} \color{#DC3D32}{back} \color{#D04444}{to} \color{#C53636}{updating}}$ $\text{\color{#B52B2B}{the} \color{#AA2020}{nomination} \color{#991414}{list} \color{#880808}{again.}}$ $\text{\color{#B52B2B}{Okay,} \color{#AA2020}{ty...}}$ (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)
+![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg!}}$ $\text{\color{#B52B2B}{We're} \color{#C53636}{on} \color{#D04444}{a} \color{#DC3D32}{temporary break}}$ $\text{\color{#C53636}{from} \color{#B52B2B}{adding} \color{#AA2020}{new} \color{#991414}{nominations} \color{#880808}{currently,}}$ $\text{\color{#991414}{but} \color{#AA2020}{it's} \color{#B52B2B}{okay} \color{#C53636}{to} \color{#D04444}{send}}$ $\text{\color{#DC3D32}{in} \color{#D04444}{yours} \color{#EE4B2B}{right now!}}$ $\text{\color{#B52B2B}{You} \color{#AA2020}{just} \color{#991414}{need}}$ $\text{\color{#880808}{to} \color{#991414}{wait}}$ $\text{\color{#AA2020}{for} \color{#B52B2B}{approval} \color{#C53636}{once}}$ $\text{\color{#D04444}{we're} \color{#DC3D32}{back} \color{#D04444}{to} \color{#C53636}{updating}}$ $\text{\color{#B52B2B}{the} \color{#AA2020}{nomination} \color{#991414}{list} \color{#880808}{again.}}$ $\text{\color{#B52B2B}{Okay,} \color{#AA2020}{ty...}}$ $\text{\color{#880808}{﹙}\color{#A71919}{⁠ }\color{#C52A2A}{◜}\color{#D93636}{‿}\color{#EE4B2B}{◝}\color{#C52A2A}{⁠ }\color{#A71919}{﹚}}$ <br>
+
+$\text{\color{#880808}{—} \color{#A71919}{hwobae}}$
 
 <br>
 
