@@ -167,7 +167,7 @@ $\text{\color{#df5b3b}{[𝐅𝐍𝐅 𝐂𝐨𝐫𝐫𝐮𝐩𝐭𝐢𝐨𝐧] �
 $\text{\color{#df5b3b}{𝐛𝐲 𝐒𝐚𝐬𝐭𝐞𝐫 𝐌𝐮𝐬𝐢𝐜!}}$ <br>
 $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: 𝐀 𝐆𝐮𝐧}}$
 
-![Survivors](https://file.garden/ZroW4OcqSGtS0a5j/7h3097.gif) $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$ 
 
