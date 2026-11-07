@@ -156,7 +156,9 @@ $\text{\color{#4d7c00}{e.g tcoaal if not obvious.}}$<br>
 
 <div align="center">
 
-<img width="100" height="100" src="https://pzwiki.net/w/images/d/d8/SpiffoSurvivor.png?20240630220541" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" />
+<img width="100" height="100" src="https://pzwiki.net/w/images/d/d8/SpiffoSurvivor.png?20240630220541" /> <img height="70" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled296_20261029190822.png" /> <br>
+
+![Survivors](https://file.garden/ZroW4OcqSGtS0a5j/7h3097.gif) <br>
 
 $\text{\color{#A82020}{♘}}$ <a href="https://github.com/mrfishsandwhich">@𝐦𝐫𝐟𝐢𝐬𝐡𝐬𝐚𝐧𝐝𝐰𝐡𝐢𝐜𝐡</a> $\text{\color{#B52B24}{𝐢𝐬} \color{#C43E29}{𝐊𝐧𝐨𝐱} \color{#D05B32}{𝐄𝐯𝐞𝐧𝐭'}\color{#B8793D}{𝐬} \color{#A36F3C}{𝐋𝐨𝐮𝐢𝐬!} \color{#754D32}{[𝐋𝐞𝐟𝐭} \color{#51372C}{𝟒 𝐃𝐞𝐚𝐝]}}$
 
@@ -165,9 +167,9 @@ $\text{\color{#df5b3b}{[𝐅𝐍𝐅 𝐂𝐨𝐫𝐫𝐮𝐩𝐭𝐢𝐨𝐧] �
 $\text{\color{#df5b3b}{𝐛𝐲 𝐒𝐚𝐬𝐭𝐞𝐫 𝐌𝐮𝐬𝐢𝐜!}}$ <br>
 $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: 𝐀 𝐆𝐮𝐧}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
+![Survivors](https://file.garden/ZroW4OcqSGtS0a5j/7h3097.gif) $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$ 
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/eversleeping-town" style="color: #FFDC19;">@𝐞𝐯𝐞𝐫𝐬𝐥𝐞𝐞𝐩𝐢𝐧𝐠-𝐭𝐨𝐰𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐝𝐚 𝐖𝐨𝐧𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]}}$
 
@@ -278,8 +280,11 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/7288400f065abd1cc6d3c00eee25d637f0b7fdb2.png)
 
-</p>
+<br>
 
+![Half Infecteds](https://file.garden/ZroW4OcqSGtS0a5j/tumblr_6c20e7b910dfdfe554bdc6f3ac970809_25248805_75.gif)
+
+</p>
 
 <div align="center">
 
@@ -374,7 +379,9 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="co
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/7a340677f251f40c40e017b50b7055e9df2c0720.png)
 
-<img width="100" height="100" src="https://pzwiki.net/w/images/3/3e/Moodle_Icon_Zombie.png?20230518201408" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" />
+<img width="100" height="100" src="https://pzwiki.net/w/images/3/3e/Moodle_Icon_Zombie.png?20230518201408" /> <img height="50" width="300" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled297.png" /> <br>
+
+![Infecteds](https://file.garden/ZroW4OcqSGtS0a5j/tumblr_e766542b34586c4cfae4e5d4538fb903_e50c9e3c_75.gif) <br>
 
 $\text{\color{#DDBB34}{𖥻 ׁ ׅ 𝐒𝐎𝐋𝐀𝐑𝐈𝐒 ᝰ.}}$ $\text{\color{#E5BE38}{𝐓𝐞𝐨}}$ $\text{\color{#E9C85B}{𝐢𝐬}}$ $\text{\color{#DCCB8D}{𝐊𝐧𝐨𝐱}}$ $\text{\color{#C3C5A9}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A5BEC0}{𝐌𝐞𝐩𝐡𝐢𝐥𝐞𝐬}}$ $\text{\color{#8CAAB9}{𝐓𝐡𝐞}}$ $\text{\color{#8299A8}{𝐃𝐚𝐫𝐤!}}$ <br>
 $\text{\color{#778B9B}{[𝐒𝐨𝐧𝐢𝐜}}$ $\text{\color{#687D8C}{𝐓𝐡𝐞}}$ $\text{\color{#586D7B}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠}}$ $\text{\color{#414F5C}{𝟐𝟎𝟎𝟔]}}$
