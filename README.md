@@ -464,9 +464,13 @@ $\text{\color{#6cc0f5}{˵¬ᴗ¬˵}}$ <a href="https://github.com/9i71" style="c
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/cherrip1e" style="color: #B5C900;">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
 
+$\text{\color{#880808}{†}}$ <a href="https://github.com/demonbell3" style="color: #880808;">@𝐝𝐞𝐦𝐨𝐧𝐛𝐞𝐥𝐥𝟑</a> $\text{\color{#880808}{𝐢𝐬} \color{#9D130D}{𝐊𝐧𝐨𝐱} \color{#B21F13}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#C72B19}{𝐑𝐚𝐜𝐡𝐞𝐥} \color{#DC381F}{𝐀𝐦𝐛𝐞𝐫!} \color{#EE4B2B}{[𝐋𝐢𝐟𝐞 𝐈𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]}}$
+
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
+
+***
 
 <br>
 
