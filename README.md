@@ -6,6 +6,10 @@
     Coding all these by myself does makes me want to dig my hand into my head though, youre welcome to check them out below
 </!-->
 
+$\color{#0e632d}{\text{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\color{#0e632d}{\text{𝐢𝐬}}\ \color{#187a35}{\text{𝐊𝐧𝐨𝐱}}\ \color{#299b43}{\text{𝐄𝐯𝐞𝐧𝐭'𝐬}}\ \color{#52b84d}{\text{𝐅𝐮𝐤𝐮𝐚!}}\ \color{#299b43}{\text{[𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
+
+$\color{#00A8FF}{\text{✦}}\color{#168CFF}{\text{✧}}$ <a href="https://github.com/thatblueblur" style="color: #168CFF;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\color{#168CFF}{\text{𝐢𝐬}}\ \color{#168CFF}{\text{𝐊𝐧𝐨𝐱}}\ \color{#00A8FF}{\text{𝐄𝐯𝐞𝐧𝐭'𝐬}}\ \color{#168CFF}{\text{𝐒𝐨𝐧𝐢𝐜}}\ \color{#35C9E8}{\text{𝐓𝐡𝐞}}\ \color{#00A8FF}{\text{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\color{#00A8FF}{\text{ᕕ﹙}}\color{#168CFF}{\text{ᐛ}}\color{#35C9E8}{\text{﹚ᕗ}}$
+
 <div align="left">
 
 ![](https://adriansblinkiecollection.neocities.org/k10.gif) <br>
@@ -325,8 +329,6 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="c
 $\text{\color{#B5C900}{[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$<br>
 
 $\text{\color{#482c56}{꒰ ✦ ꒱}}$ <a href="https://github.com/UNLEASH-NOLI" style="color: #482c56;">@𝐔𝐍𝐋𝐄𝐀𝐒𝐇-𝐍𝐎𝐋𝐈</a> $\text{\color{#482c56}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐨𝐥𝐢! [𝐑𝐎𝐁𝐋𝐎𝐗]}}$
-
-$\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬} \color{#187a35}{𝐊𝐧𝐨𝐱} \color{#299b43}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#52b84d}{𝐅𝐮𝐤𝐮𝐚!} \color{#299b43}{[𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
 
