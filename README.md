@@ -12,13 +12,15 @@
 
 Knox Event Update Log: <br>
 
-November 7th. <br>
+November 8th. <br>
 
 ![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) Yo hello wsg! We'll be updating this nomination list sort of slowly for now, but feel free to send yours! Just taking a quick break from frequent updates. <br>
 
 Also We noticed that there's some errors with the color codings / gradient, looked like it has limits or whatever with the Github Formats, which is upsetting Us. ALOT. <br>
 
 Our apologies if your REQs with customs might not seem like how you wanted it to be after We're resolving this. Or without a choice, further nominations might comes off as plain white or without fonts when adding them, please do not take it personally, YOU are still cool without fonts or color hex codes or symbols or kaomojis when nominating. <br>
+
+We aren't obligated to preserve everyone's requested formatting if the platform is making the process difficult. The nomination itself matters more than its decoration!
 
 We suggest without any color/gradient OR only 1 / 2 colors/gradient for your REQs after this. Thank you for reading and understanding. We're also annoyed on how troublesome this is for Us. (with the coding stuff actually). ﹙⁠ ◜‿◝ ⁠﹚ <br>
 
