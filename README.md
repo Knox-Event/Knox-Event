@@ -16,8 +16,6 @@ $\text{\color{#B22222}{November} \color{#D93636}{7th.}}$ <br>
 
 ![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg!}}$ $\text{\color{#B52B2B}{We'll} \color{#C53636}{be} \color{#D04444}{updating}}$ $\text{\color{#DC3D32}{this} \color{#C53636}{nomination} \color{#B52B2B}{list}}$ $\text{\color{#AA2020}{a} \color{#991414}{little} \color{#880808}{slow,}}$ $\text{\color{#991414}{still,} \color{#AA2020}{feel} \color{#B52B2B}{free}}$ $\text{\color{#C53636}{to} \color{#D04444}{send} \color{#DC3D32}{yours!}}$ $\text{\color{#C53636}{Just} \color{#B52B2B}{taking} \color{#AA2020}{a}}$ $\text{\color{#991414}{quick} \color{#880808}{break}}$ $\text{\color{#991414}{from} \color{#AA2020}{updating} \color{#B52B2B}{it}}$ $\text{\color{#C53636}{quickly.} \color{#D04444}{Thanks.}}$ $\text{\color{#880808}{﹙}\color{#A71919}{⁠ }\color{#C52A2A}{◜}\color{#D93636}{‿}\color{#EE4B2B}{◝}\color{#C52A2A}{⁠ }\color{#A71919}{﹚}}$ <br>
 
-$\text{\color{#880808}{—} \color{#A71919}{hwobae} \color{#C52A2A}{:3}}$
-
 $\text{\color{#880808}{—} \color{#A71919}{hwobae}}$ <br>
 
 ![](https://adriansblinkiecollection.neocities.org/k16.gif)
