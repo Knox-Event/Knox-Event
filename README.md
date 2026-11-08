@@ -6,7 +6,7 @@
     Coding all these by myself does makes me want to dig my hand into my head though, youre welcome to check them out below
 </!-->
 
-$\color{#0e632d}{\text{TEST}}$
+$\text{\color{#0e632d}{TEST}}$
 
 <div align="left">
 
