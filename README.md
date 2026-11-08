@@ -185,6 +185,8 @@ $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: �
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" style="color: #FFDC19;">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]}}$
 
+$\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$ <a href="https://github.com/thatblueblur" style="color: #168CFF;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\text{\color{#168CFF}{𝐢𝐬} \color{#168CFF}{𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#168CFF}{𝐒𝐨𝐧𝐢𝐜} \color{#35C9E8}{𝐓𝐡𝐞} \color{#00A8FF}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#00A8FF}{ᕕ﹙} \color{#168CFF}{ᐛ} \color{#35C9E8}{﹚ᕗ}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$ 
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/eversleeping-town" style="color: #FFDC19;">@𝐞𝐯𝐞𝐫𝐬𝐥𝐞𝐞𝐩𝐢𝐧𝐠-𝐭𝐨𝐰𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐝𝐚 𝐖𝐨𝐧𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]}}$
@@ -325,6 +327,8 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="c
 $\text{\color{#B5C900}{[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$<br>
 
 $\text{\color{#482c56}{꒰ ✦ ꒱}}$ <a href="https://github.com/UNLEASH-NOLI" style="color: #482c56;">@𝐔𝐍𝐋𝐄𝐀𝐒𝐇-𝐍𝐎𝐋𝐈</a> $\text{\color{#482c56}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐨𝐥𝐢! [𝐑𝐎𝐁𝐋𝐎𝐗]}}$
+
+$\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬} \color{#187a35}{𝐊𝐧𝐨𝐱} \color{#299b43}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#52b84d}{𝐅𝐮𝐤𝐮𝐚!} \color{#299b43}{[𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
 
@@ -492,6 +496,10 @@ $\text{\color{#6cc0f5}{˵¬ᴗ¬˵}}$ <a href="https://github.com/9i71" style="c
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/cherrip1e" style="color: #B5C900;">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
 
 $\text{\color{#880808}{†}}$ <a href="https://github.com/demonbell3" style="color: #880808;">@𝐝𝐞𝐦𝐨𝐧𝐛𝐞𝐥𝐥𝟑</a> $\text{\color{#880808}{𝐢𝐬} \color{#9D130D}{𝐊𝐧𝐨𝐱} \color{#B21F13}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#C72B19}{𝐑𝐚𝐜𝐡𝐞𝐥} \color{#DC381F}{𝐀𝐦𝐛𝐞𝐫!} \color{#EE4B2B}{[𝐋𝐢𝐟𝐞 𝐈𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]}}$
+
+$\text{\color{#87132E}{〘🩸〙}}$ <a href="https://github.com/sanguinesilence" style="color: #500A1D;">@𝐬𝐚𝐧𝐠𝐮𝐢𝐧𝐞𝐬𝐢𝐥𝐞𝐧𝐜𝐞</a> $\text{\color{#87132E}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐁𝐥𝐨𝐭! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$ <br>
+$\text{\color{#87132E}{𝐀𝐧𝐝 𝐂𝐨𝐧𝐟𝐞𝐬𝐬𝐢𝐨𝐧𝐬 𝐎𝐟 𝐀 𝐁𝐥𝐚𝐜𝐤𝐡𝐞𝐚𝐫𝐭 ♪}}$ <br>
+$\text{\color{#87132E}{𝐛𝐲 𝐆𝐞𝐧𝐢𝐭𝐨𝐫𝐭𝐮𝐫𝐞𝐫𝐬!}}$ <br>
 
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
