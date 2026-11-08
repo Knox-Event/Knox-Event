@@ -300,6 +300,9 @@ $\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐌𝐜𝐃𝐨𝐧𝐚𝐥𝐝𝐬 𝐈�
 $\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$ <a href="https://github.com/thatblueblur" style="color: #168CFF;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\text{\color{#168CFF}{𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#00A8FF}{(ง} \color{#168CFF}{•̀ᴗ•́} \color{#00A8FF}{)ง}}$
 
 $\text{\color{#3a6741}{[ .ᐟ ]}}$ <a href="https://github.com/zydr4t3" style="color: #3a6741;">@𝐳𝐲𝐝𝐫𝟒𝐭𝟑</a> $\text{\color{#3a6741}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐧 𝐌𝐚𝐧𝐝𝐞𝐥! [𝐃𝐚𝐧 𝐕𝐬.]}}$
+
+$\text{\color{#ff3333}{✮}}$ <a href="https://github.com/andreslopper" style="color: #ff3333;">@𝐚𝐧𝐝𝐫𝐞𝐬𝐥𝐨𝐩𝐩𝐞𝐫</a> $\text{\color{#ff3333}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#b5e619}{𝐓𝐞𝐫𝐫𝐨𝐫 𝐄-𝟒!} \color{#b5e619}{[𝐓𝐡𝐞 𝐁𝐥𝐮𝐞 𝐇𝐮𝐦𝐚𝐧]}}$
+
 </p>
 
 <!---
@@ -508,7 +511,12 @@ $\text{\color{#87132E}{〘🩸〙}}$ <a href="https://github.com/sanguinesilence
 $\text{\color{#87132E}{𝐀𝐧𝐝 𝐂𝐨𝐧𝐟𝐞𝐬𝐬𝐢𝐨𝐧𝐬 𝐎𝐟 𝐀 𝐁𝐥𝐚𝐜𝐤𝐡𝐞𝐚𝐫𝐭 ♪}}$ <br>
 $\text{\color{#87132E}{𝐛𝐲 𝐆𝐞𝐧𝐢𝐭𝐨𝐫𝐭𝐮𝐫𝐞𝐫𝐬!}}$ <br>
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
+$\text{\color{#ff4fa3}{𝜗ৎ}}$ <a href="https://github.com/witheringpetals" style="color: #d936a5;">@𝐰𝐢𝐭𝐡𝐞𝐫𝐢𝐧𝐠𝐩𝐞𝐭𝐚𝐥𝐬</a> $\text{\color{#d936a5}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#a52b9b}{𝐀𝐳𝐮𝐫𝐞𝐰𝐫𝐚𝐭𝐡 /} \color{#642e86}{𝐀𝐬𝐩𝐞𝐧! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]} \color{#642e86}{♡}}$ <br>
+$\text{\color{#ff4fa3}{𝐀𝐧𝐝} \color{#d936a5}{𝐌𝐨𝐦 𝐅𝐫𝐢𝐞𝐧𝐝 ♪} \color{#a52b9b}{𝐁𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐒𝐧𝐞𝐞𝐳𝐞} \color{#642e86}{+}}$ <br>
+$\text{\color{#ff4fa3}{𝐓𝐡𝐞 𝐂𝐮𝐫𝐞 ♪} \color{#d936a5}{𝐁𝐲} \color{#a52b9b}{𝐎𝐥𝐢𝐯𝐢𝐚 𝐑𝐨𝐝𝐫𝐢𝐠𝐨!}}$ <br>
+$\text{\color{#ff4fa3}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧𝐬:} \color{#d936a5}{𝐓𝐞𝐧𝐝𝐫𝐢𝐥𝐬 +} \color{#642e86}{𝐀𝐭𝐫𝐨𝐩𝐚 𝐁𝐞𝐥𝐥𝐚𝐝𝐨𝐧𝐧𝐚}}$
+
+$\text{\color{#ffb347}{†}}$ <a href="https://github.com/9thharbinger" style="color: #e68a24;">@9𝐭𝐡𝐡𝐚𝐫𝐛𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#e68a24}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#c96b1b}{𝐉𝐚𝐯𝐢𝐞𝐫 𝐄𝐬𝐜𝐮𝐞𝐥𝐥𝐚!} \color{#a94f17}{[𝐑𝐃𝐑𝟏/𝟐]}}$
 
 </p>
 
