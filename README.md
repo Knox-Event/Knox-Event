@@ -427,10 +427,6 @@ $\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style=
 
 $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
 
-$\text{\color{#87132E}{〘🩸〙}}$ <a href="https://github.com/sanguinesilence" style="background: linear-gradient(90deg, #000000, #28000B, #500A1D, #87132E); -webkit-background-clip: text; -webkit-text-fill-color: transparent;">@𝐬𝐚𝐧𝐠𝐮𝐢𝐧𝐞𝐬𝐢𝐥𝐞𝐧𝐜𝐞</a> $\text{\color{#87132E}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐁𝐥𝐨𝐭! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$ <br>
-$\text{\color{#87132E}{𝐀𝐧𝐝 𝐂𝐨𝐧𝐟𝐞𝐬𝐬𝐢𝐨𝐧𝐬 𝐎𝐟 𝐀 𝐁𝐥𝐚𝐜𝐤𝐡𝐞𝐚𝐫𝐭 ♪}}$ <br>
-$\text{\color{#87132E}{𝐛𝐲 𝐆𝐞𝐧𝐢𝐭𝐨𝐫𝐭𝐮𝐫𝐞𝐫𝐬!}}$ <br>
-
 $\text{\color{#f80202}{⸜﹙´ ꒳ ` ﹚⸝}}$ <a href="https://github.com/smith-kingsley" style="color: #B5C900;">@𝐬𝐦𝐢𝐭𝐡-𝐤𝐢𝐧𝐠𝐬𝐥𝐞𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐎𝐥𝐥𝐢𝐞 𝐏𝐥𝐢𝐦𝐬𝐨𝐥𝐥𝐬 𝐀𝐧𝐝 𝐑𝐞𝐞𝐜𝐞 𝐒𝐡𝐞𝐚𝐫𝐬𝐦𝐢𝐭𝐡!}}$ <br>
 $\text{\color{#f80202}{[𝐓𝐡𝐞 𝐋𝐞𝐚𝐠𝐮𝐞 𝐨𝐟 𝐆𝐞𝐧𝐭𝐥𝐞𝐦𝐞𝐧]}}$
 
