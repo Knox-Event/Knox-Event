@@ -22,8 +22,6 @@ Our apologies if your REQs with customs might not seem like how you wanted it to
 
 We aren't obligated to preserve everyone's requested formatting if the platform is making the process difficult. The nomination itself matters more than its decoration!
 
-For alternative way if We had to, We'll try using clickable images instead of text format stuff, to match the normal coding stuff for fonts , coloring.. adding symbols etc.
-
 We suggest without any color/gradient OR only 1 / 2 colors/gradient for your REQs after this. Thank you for reading and understanding. We're also annoyed on how troublesome this is for Us. (with the coding stuff actually). ﹙⁠ ◜‿◝ ⁠﹚ <br>
 
 — hwobae <br>
