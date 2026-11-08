@@ -289,6 +289,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/elliot-builder-fictkin
 $\text{\color{#FFDC19}{[𝐖𝐀𝐀𝐏𝐏, 𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧 + 𝐨𝐭𝐡𝐞𝐫𝐬]}}$ <br>
 $\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐌𝐜𝐃𝐨𝐧𝐚𝐥𝐝𝐬 𝐈𝐧 𝐓𝐡𝐞 𝐏𝐞𝐧𝐭𝐚𝐠𝐨𝐧 ♪ !}}$
 
+$\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$ <a href="https://github.com/thatblueblur" style="color: #168CFF;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\text{\color{#168CFF}{𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#00A8FF}{(ง} \color{#168CFF}{•̀ᴗ•́} \color{#00A8FF}{)ง}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -390,6 +392,8 @@ $\text{\color{#2BBF9F}{𝐀𝐧𝐝} \color{#22937C}{𝐓𝐡𝐞} \color{#19675
 $\text{\color{#2BBF9F}{𝐁𝐲} \color{#19675C}{𝐁𝐨𝐠𝐠𝐢𝐨!}}$
 
 $\text{\color{#B5C900}{꒰ 🍀 ꒱}}$ <a href="https://github.com/futuristic-maniac" style="color: #B5C900;">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]}}$
+
+$\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#187a35}{𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐮𝐤𝐮𝐚! [𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/placeholder" style="color: #B5C900;">@placeholder</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
