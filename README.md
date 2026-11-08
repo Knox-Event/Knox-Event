@@ -187,6 +187,8 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" styl
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$ 
 
+$\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$ <a href="https://github.com/thatblueblur" style="background: linear-gradient(90deg, #00A8FF, #168CFF, #35C9E8); -webkit-background-clip: text; -webkit-text-fill-color: transparent;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\text{\color{#168CFF}{𝐢𝐬} \color{#168CFF}{𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#168CFF}{𝐒𝐨𝐧𝐢𝐜} \color{#35C9E8}{𝐓𝐡𝐞} \color{#00A8FF}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#00A8FF}{ᕕ﹙} \color{#168CFF}{ᐛ} \color{#35C9E8}{﹚ᕗ}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/eversleeping-town" style="color: #FFDC19;">@𝐞𝐯𝐞𝐫𝐬𝐥𝐞𝐞𝐩𝐢𝐧𝐠-𝐭𝐨𝐰𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐝𝐚 𝐖𝐨𝐧𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/2099s" style="color: #FFDC19;">@𝟐𝟎𝟗𝟗𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐠𝐮𝐞𝐥 𝐎'𝐇𝐚𝐫𝐚! [𝐀𝐓𝐒𝐕/𝐌𝐚𝐫𝐯𝐞𝐥 𝐂𝐨𝐦𝐢𝐜]}}$
@@ -282,6 +284,13 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/angelicr0t" style="col
 
 $\text{\color{#36A852}{✮}}$ <a href="https://github.com/Yoshida-zawa" style="background: linear-gradient(90deg, #269B45, #389E40, #659E35, #A68D2B, #D97825, #F06420); -webkit-background-clip: text; -webkit-text-fill-color: transparent; color: transparent;">@𝐘𝐨𝐬𝐡𝐢𝐝𝐚-𝐳𝐚𝐰𝐚</a> $\text{\color{#269B45}{𝐢}\color{#319D42}{𝐬} \color{#419E3D}{𝐊}\color{#549E39}{𝐧}\color{#689D35}{𝐨}\color{#7D9931}{𝐱} \color{#92932E}{𝐄}\color{#A68D2B}{𝐯}\color{#B88729}{𝐞}\color{#CA8027}{𝐧}\color{#D97825}{𝐭}\color{#E27123}{'}\color{#E96B22}{𝐬} \color{#E96B22}{𝐈}\color{#DF7223}{𝐳}\color{#D57825}{𝐮}\color{#CA8027}{𝐤}\color{#BD8829}{𝐮} \color{#AE902D}{𝐌}\color{#9B962F}{𝐢}\color{#879B32}{𝐝}\color{#719D34}{𝐨}\color{#5C9F38}{𝐫}\color{#489F3C}{𝐢}\color{#369E41}{𝐲}\color{#269B45}{𝐚}\color{#269B45}{!} \color{#269B45}{[}\color{#659E35}{𝐌}\color{#B88729}{𝐇}\color{#F06420}{𝐀}\color{#F06420}{]}}$
 
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/frag1leserendip1ty" style="color: #FFDC19;">@𝐟𝐫𝐚𝐠𝟏𝐥𝐞𝐬𝐞𝐫𝐞𝐧𝐝𝐢𝐩𝟏𝐭𝐲</a> $\text{\color{#FFDC19}{𝐢𝐬} \color{#F5C313}{𝐊𝐧𝐨𝐱} \color{#EBAF0D}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#E19B08}{𝐂𝐚𝐫𝐨𝐥𝐢𝐧𝐞} \color{#D72608}{𝐂𝐡𝐚𝐧𝐧𝐢𝐧𝐠!}}$ <br>
+$\text{\color{#B81708}{[𝟐} \color{#A80F08}{𝐁𝐫𝐨𝐤𝐞} \color{#880808}{𝐆𝐢𝐫𝐥𝐬]}}$
+
+$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/elliot-builder-fictkin" style="color: #FFDC19;">@𝐞𝐥𝐥𝐢𝐨𝐭-𝐛𝐮𝐢𝐥𝐝𝐞𝐫-𝐟𝐢𝐜𝐭𝐤𝐢𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐥𝐥𝐢𝐨𝐭 𝐁𝐮𝐢𝐥𝐝𝐞𝐫!}}$ <br>
+$\text{\color{#FFDC19}{[𝐖𝐀𝐀𝐏𝐏, 𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧 + 𝐨𝐭𝐡𝐞𝐫𝐬]}}$ <br>
+$\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐌𝐜𝐃𝐨𝐧𝐚𝐥𝐝𝐬 𝐈𝐧 𝐓𝐡𝐞 𝐏𝐞𝐧𝐭𝐚𝐠𝐨𝐧 ♪ !}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
 
 </p>
@@ -320,6 +329,12 @@ $\text{\color{#B5C900}{[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$<br>
 $\text{\color{#482c56}{꒰ ✦ ꒱}}$ <a href="https://github.com/UNLEASH-NOLI" style="color: #482c56;">@𝐔𝐍𝐋𝐄𝐀𝐒𝐇-𝐍𝐎𝐋𝐈</a> $\text{\color{#482c56}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐨𝐥𝐢! [𝐑𝐎𝐁𝐋𝐎𝐗]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
+
+$\text{\color{#00d2be}{꒰ 🍝🏁 ꒱}}$ <a href="https://github.com/AntoneIIi" style="color: #00d2be;">@𝐀𝐧𝐭𝐨𝐧𝐞𝐈𝐈𝐢</a> $\text{\color{#00d2be}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐢𝐦𝐢 𝐀𝐧𝐭𝐨𝐧𝐞𝐥𝐥𝐢!}}$
+
+$\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="background: linear-gradient(90deg, #0e632d, #187a35, #299b43, #52b84d); -webkit-background-clip: text; -webkit-text-fill-color: transparent;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬} \color{#187a35}{𝐊𝐧𝐨𝐱} \color{#299b43}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#52b84d}{𝐅𝐮𝐤𝐮𝐚!} \color{#299b43}{[𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
+
+$\text{\color{#8050A8}{☣}}$ <a href="https://github.com/crazybloxer" style="color: #8050A8;">@𝐜𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱𝐞𝐫</a> $\text{\color{#8050A8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱! [𝐅𝐥𝐨𝐨𝐝 𝐄𝐬𝐜𝐚𝐩𝐞 𝟐]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/itrap-2245" style="color: #B5C900;">@𝐢𝐭𝐫𝐚𝐩-𝟐𝟐𝟒𝟓</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐢𝐓𝐫𝐚𝐩𝐩𝐞𝐝 ! [𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍/𝐌𝐌𝟏𝟐]}}$
 
@@ -411,6 +426,10 @@ $\text{\color{#4ac925}{†}}$ <a href="https://github.com/erisolsprites" style="
 $\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
 
 $\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
+
+$\text{\color{#87132E}{〘🩸〙}}$ <a href="https://github.com/sanguinesilence" style="background: linear-gradient(90deg, #000000, #28000B, #500A1D, #87132E); -webkit-background-clip: text; -webkit-text-fill-color: transparent;">@𝐬𝐚𝐧𝐠𝐮𝐢𝐧𝐞𝐬𝐢𝐥𝐞𝐧𝐜𝐞</a> $\text{\color{#87132E}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐁𝐥𝐨𝐭! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$ <br>
+$\text{\color{#87132E}{𝐀𝐧𝐝 𝐂𝐨𝐧𝐟𝐞𝐬𝐬𝐢𝐨𝐧𝐬 𝐎𝐟 𝐀 𝐁𝐥𝐚𝐜𝐤𝐡𝐞𝐚𝐫𝐭 ♪}}$ <br>
+$\text{\color{#87132E}{𝐛𝐲 𝐆𝐞𝐧𝐢𝐭𝐨𝐫𝐭𝐮𝐫𝐞𝐫𝐬!}}$ <br>
 
 $\text{\color{#f80202}{⸜﹙´ ꒳ ` ﹚⸝}}$ <a href="https://github.com/smith-kingsley" style="color: #B5C900;">@𝐬𝐦𝐢𝐭𝐡-𝐤𝐢𝐧𝐠𝐬𝐥𝐞𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐎𝐥𝐥𝐢𝐞 𝐏𝐥𝐢𝐦𝐬𝐨𝐥𝐥𝐬 𝐀𝐧𝐝 𝐑𝐞𝐞𝐜𝐞 𝐒𝐡𝐞𝐚𝐫𝐬𝐦𝐢𝐭𝐡!}}$ <br>
 $\text{\color{#f80202}{[𝐓𝐡𝐞 𝐋𝐞𝐚𝐠𝐮𝐞 𝐨𝐟 𝐆𝐞𝐧𝐭𝐥𝐞𝐦𝐞𝐧]}}$
