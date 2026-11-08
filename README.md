@@ -187,8 +187,6 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/mydearmeIancholy" styl
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/kittyypop" style="color: #FFDC19;">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]}}$ 
 
-$\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$ <a href="https://github.com/thatblueblur" style="background: linear-gradient(90deg, #00A8FF, #168CFF, #35C9E8); -webkit-background-clip: text; -webkit-text-fill-color: transparent;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\text{\color{#168CFF}{𝐢𝐬} \color{#168CFF}{𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#168CFF}{𝐒𝐨𝐧𝐢𝐜} \color{#35C9E8}{𝐓𝐡𝐞} \color{#00A8FF}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#00A8FF}{ᕕ﹙} \color{#168CFF}{ᐛ} \color{#35C9E8}{﹚ᕗ}}$
-
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/eversleeping-town" style="color: #FFDC19;">@𝐞𝐯𝐞𝐫𝐬𝐥𝐞𝐞𝐩𝐢𝐧𝐠-𝐭𝐨𝐰𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐝𝐚 𝐖𝐨𝐧𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/2099s" style="color: #FFDC19;">@𝟐𝟎𝟗𝟗𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐠𝐮𝐞𝐥 𝐎'𝐇𝐚𝐫𝐚! [𝐀𝐓𝐒𝐕/𝐌𝐚𝐫𝐯𝐞𝐥 𝐂𝐨𝐦𝐢𝐜]}}$
@@ -331,8 +329,6 @@ $\text{\color{#482c56}{꒰ ✦ ꒱}}$ <a href="https://github.com/UNLEASH-NOLI" 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
 
 $\text{\color{#00d2be}{꒰ 🍝🏁 ꒱}}$ <a href="https://github.com/AntoneIIi" style="color: #00d2be;">@𝐀𝐧𝐭𝐨𝐧𝐞𝐈𝐈𝐢</a> $\text{\color{#00d2be}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐢𝐦𝐢 𝐀𝐧𝐭𝐨𝐧𝐞𝐥𝐥𝐢!}}$
-
-$\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="background: linear-gradient(90deg, #0e632d, #187a35, #299b43, #52b84d); -webkit-background-clip: text; -webkit-text-fill-color: transparent;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬} \color{#187a35}{𝐊𝐧𝐨𝐱} \color{#299b43}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#52b84d}{𝐅𝐮𝐤𝐮𝐚!} \color{#299b43}{[𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
 
 $\text{\color{#8050A8}{☣}}$ <a href="https://github.com/crazybloxer" style="color: #8050A8;">@𝐜𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱𝐞𝐫</a> $\text{\color{#8050A8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱! [𝐅𝐥𝐨𝐨𝐝 𝐄𝐬𝐜𝐚𝐩𝐞 𝟐]}}$
 
