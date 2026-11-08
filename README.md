@@ -12,9 +12,11 @@
 
 $\text{\color{#880808}{Knox} \color{#A71919}{Event} \color{#C52A2A}{Update} \color{#EE4B2B}{Log:}}$ <br>
 
-$\text{\color{#B22222}{November} \color{#D93636}{8.}}$ <br>
+$\text{\color{#B22222}{November} \color{#D93636}{7th.}}$ <br>
 
-![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg!}}$ $\text{\color{#B52B2B}{We're} \color{#C53636}{on} \color{#D04444}{a} \color{#DC3D32}{temporary break}}$ $\text{\color{#C53636}{from} \color{#B52B2B}{adding} \color{#AA2020}{new} \color{#991414}{nominations} \color{#880808}{currently,}}$ $\text{\color{#991414}{but} \color{#AA2020}{it's} \color{#B52B2B}{okay} \color{#C53636}{to} \color{#D04444}{send}}$ $\text{\color{#DC3D32}{in} \color{#D04444}{yours} \color{#EE4B2B}{right now!}}$ $\text{\color{#B52B2B}{You} \color{#AA2020}{just} \color{#991414}{need}}$ $\text{\color{#880808}{to} \color{#991414}{wait}}$ $\text{\color{#AA2020}{for} \color{#B52B2B}{approval} \color{#C53636}{once}}$ $\text{\color{#D04444}{We're} \color{#DC3D32}{back} \color{#D04444}{to} \color{#C53636}{updating}}$ $\text{\color{#B52B2B}{the} \color{#AA2020}{nomination} \color{#991414}{list} \color{#880808}{again.}}$ $\text{\color{#B52B2B}{Okay,} \color{#AA2020}{ty...}}$ $\text{\color{#880808}{﹙}\color{#A71919}{⁠ }\color{#C52A2A}{◜}\color{#D93636}{‿}\color{#EE4B2B}{◝}\color{#C52A2A}{⁠ }\color{#A71919}{﹚}}$ <br>
+![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg!}}$ $\text{\color{#B52B2B}{We'll} \color{#C53636}{be} \color{#D04444}{updating}}$ $\text{\color{#DC3D32}{this} \color{#C53636}{nomination} \color{#B52B2B}{list}}$ $\text{\color{#AA2020}{a} \color{#991414}{little} \color{#880808}{slow,}}$ $\text{\color{#991414}{still,} \color{#AA2020}{feel} \color{#B52B2B}{free}}$ $\text{\color{#C53636}{to} \color{#D04444}{send} \color{#DC3D32}{yours!}}$ $\text{\color{#C53636}{Just} \color{#B52B2B}{taking} \color{#AA2020}{a}}$ $\text{\color{#991414}{quick} \color{#880808}{break}}$ $\text{\color{#991414}{from} \color{#AA2020}{updating} \color{#B52B2B}{it}}$ $\text{\color{#C53636}{quickly.} \color{#D04444}{Thanks.}}$ $\text{\color{#880808}{﹙}\color{#A71919}{⁠ }\color{#C52A2A}{◜}\color{#D93636}{‿}\color{#EE4B2B}{◝}\color{#C52A2A}{⁠ }\color{#A71919}{﹚}}$ <br>
+
+$\text{\color{#880808}{—} \color{#A71919}{hwobae} \color{#C52A2A}{:3}}$
 
 $\text{\color{#880808}{—} \color{#A71919}{hwobae}}$ <br>
 
