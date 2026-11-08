@@ -6,20 +6,6 @@
     Coding all these by myself does makes me want to dig my hand into my head though, youre welcome to check them out below
 </!-->
 
-$\text{\color{#0e632d}{☣}}$
-
-<a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a>
-
-$\text{\color{#0e632d}{𝐢𝐬} \color{#187a35}{𝐊𝐧𝐨𝐱} \color{#299b43}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#52b84d}{𝐅𝐮𝐤𝐮𝐚!} \color{#299b43}{[𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
-
-$\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$
-
-<a href="https://github.com/thatblueblur" style="color: #168CFF;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a>
-
-$\text{\color{#168CFF}{𝐢𝐬} \color{#168CFF}{𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#168CFF}{𝐒𝐨𝐧𝐢𝐜} \color{#35C9E8}{𝐓𝐡𝐞} \color{#00A8FF}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$
-
-$\text{\color{#00A8FF}{ᕕ﹙} \color{#168CFF}{ᐛ} \color{#35C9E8}{﹚ᕗ}}$
-
 <div align="left">
 
 ![](https://adriansblinkiecollection.neocities.org/k10.gif) <br>
