@@ -299,8 +299,7 @@ $\text{\color{#FFDC19}{𝐀𝐧𝐝 𝐌𝐜𝐃𝐨𝐧𝐚𝐥𝐝𝐬 𝐈�
 
 $\text{\color{#00A8FF}{✦}\color{#168CFF}{✧}}$ <a href="https://github.com/thatblueblur" style="color: #168CFF;">@𝐭𝐡𝐚𝐭𝐛𝐥𝐮𝐞𝐛𝐥𝐮𝐫</a> $\text{\color{#168CFF}{𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#00A8FF}{𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!}}$ $\text{\color{#00A8FF}{(ง} \color{#168CFF}{•̀ᴗ•́} \color{#00A8FF}{)ง}}$
 
-$\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/userhere" style="color: #FFDC19;">@placeholder</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 placeholder}}$
-
+$\text{\color{#3a6741}{[ .ᐟ ]}}$ <a href="https://github.com/zydr4t3" style="color: #3a6741;">@𝐳𝐲𝐝𝐫𝟒𝐭𝟑</a> $\text{\color{#3a6741}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐧 𝐌𝐚𝐧𝐝𝐞𝐥! [𝐃𝐚𝐧 𝐕𝐬.]}}$
 </p>
 
 <!---
