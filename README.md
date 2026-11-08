@@ -10,13 +10,13 @@
 
 ![](https://adriansblinkiecollection.neocities.org/k10.gif) <br>
 
-$\text{\color{#880808}{Knox} \color{#A71919}{Event} \color{#C52A2A}{Update} \color{#EE4B2B}{Log:}}$ <br>
+Knox Event Update Log: <br>
 
-$\text{\color{#B22222}{November} \color{#D93636}{7th.}}$ <br>
+November 7th. <br>
 
-![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) $\text{\color{#880808}{Yo} \color{#991414}{hello} \color{#AA2020}{wsg!}}$ $\text{\color{#B52B2B}{We'll} \color{#C53636}{be} \color{#D04444}{updating}}$ $\text{\color{#DC3D32}{this} \color{#C53636}{nomination} \color{#B52B2B}{list}}$ $\text{\color{#AA2020}{a} \color{#991414}{little} \color{#880808}{more slowly}}$ $\text{\color{#991414}{for} \color{#AA2020}{now,} \color{#B52B2B}{but}}$ $\text{\color{#C53636}{feel} \color{#D04444}{free} \color{#DC3D32}{to} \color{#C53636}{send} \color{#B52B2B}{yours!}}$ $\text{\color{#AA2020}{Just} \color{#991414}{taking} \color{#880808}{a}}$ $\text{\color{#991414}{quick} \color{#AA2020}{break}}$ $\text{\color{#B52B2B}{from} \color{#C53636}{frequent} \color{#D04444}{updates.}}$ $\text{\color{#DC3D32}{Thanks.}}$ $\text{\color{#880808}{﹙}\color{#A71919}{⁠ }\color{#C52A2A}{◜}\color{#D93636}{‿}\color{#EE4B2B}{◝}\color{#C52A2A}{⁠ }\color{#A71919}{﹚}}$ <br>
+![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) Yo hello wsg! We'll be updating this nomination list a little more slowly for now, but feel free to send yours! Just taking a quick break from frequent updates. Thanks. ﹙⁠ ◜‿◝ ⁠﹚ <br>
 
-$\text{\color{#880808}{—} \color{#A71919}{hwobae}}$ <br>
+— hwobae <br>
 
 ![](https://adriansblinkiecollection.neocities.org/k16.gif)
 
