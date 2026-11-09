@@ -34,7 +34,8 @@ We suggest without any color/gradient OR only 1 / 2 colors/gradient for your REQ
 
 <img width="700" height="400" alt="dont be a hero." src="https://i.pinimg.com/736x/eb/d6/3c/ebd63c0377ec9b7be320f47a066adf1b.jpg" />
 
-$\text{\color{#4d7c00}{spiffo img source in}}$ <a href="https://pzwiki.net/wiki/Category:Spiffo_images">here.</a>
+spiffo img source in <a href="https://pzwiki.net/wiki/Category:Spiffo_images">here.</a>
+
 </p>
 
 <!---
@@ -426,8 +427,8 @@ $\text{\color{#278b45}{☣}}$ <a href="https://github.com/6-bloodhound-6" style=
 
 ![Infecteds](https://file.garden/ZroW4OcqSGtS0a5j/tumblr_e766542b34586c4cfae4e5d4538fb903_e50c9e3c_75.gif) <br>
 
-$\text{\color{#DDBB34}{𖥻 ׁ ׅ 𝐒𝐎𝐋𝐀𝐑𝐈𝐒 ᝰ.}}$ $\text{\color{#E5BE38}{𝐓𝐞𝐨}}$ $\text{\color{#E9C85B}{𝐢𝐬}}$ $\text{\color{#DCCB8D}{𝐊𝐧𝐨𝐱}}$ $\text{\color{#C3C5A9}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A5BEC0}{𝐌𝐞𝐩𝐡𝐢𝐥𝐞𝐬}}$ $\text{\color{#8CAAB9}{𝐓𝐡𝐞}}$ $\text{\color{#8299A8}{𝐃𝐚𝐫𝐤!}}$ <br>
-$\text{\color{#778B9B}{[𝐒𝐨𝐧𝐢𝐜}}$ $\text{\color{#687D8C}{𝐓𝐡𝐞}}$ $\text{\color{#586D7B}{𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠}}$ $\text{\color{#414F5C}{𝟐𝟎𝟎𝟔]}}$
+$\text{\color{#DDBB34}{𖥻 ׁ ׅ 𝐒𝐎𝐋𝐀𝐑𝐈𝐒 ᝰ.} \color{#E5BE38}{𝐓𝐞𝐨 𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#C3C5A9}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#A5BEC0}{𝐌𝐞𝐩𝐡𝐢𝐥𝐞𝐬} \color{#8299A8}{𝐓𝐡𝐞 𝐃𝐚𝐫𝐤!}}$ <br>
+$\text{\color{#778B9B}{[𝐒𝐨𝐧𝐢𝐜 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠} \color{#414F5C}{𝟐𝟎𝟎𝟔]}}$
  
 $\text{\color{#f80202}{†}}$ <a href="https://github.com/pur3lies" style="color: #B5C900;">@𝐩𝐮𝐫𝟑𝐥𝐢𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐨𝐦𝐞𝐧 𝐒𝐮𝐤𝐮𝐧𝐚! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
 
@@ -541,7 +542,7 @@ $\text{\color{#40e0d0}{†}}$ <a href="https://github.com/NocturnalWhisper" styl
 
 https://github.com/user-attachments/assets/66bf81f0-f518-4452-b20f-d71cf8bc1e02
 
-$\text{\color{#4d7c00}{exactly what happens if u drive a vehicle in pz |}}$ <a href="https://www.youtube.com/watch?v=Nrfyz3XA610">original vid</a>
+exactly what happens if u drive a vehicle in pz | <a href="https://www.youtube.com/watch?v=Nrfyz3XA610">original vid</a>
 </p>
 
 </p>
