@@ -303,6 +303,8 @@ $\text{\color{#3a6741}{[ .ᐟ ]}}$ <a href="https://github.com/zydr4t3" style="c
 
 $\text{\color{#ff3333}{✮}}$ <a href="https://github.com/andreslopper" style="color: #ff3333;">@𝐚𝐧𝐝𝐫𝐞𝐬𝐥𝐨𝐩𝐩𝐞𝐫</a> $\text{\color{#ff3333}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#b5e619}{𝐓𝐞𝐫𝐫𝐨𝐫 𝐄-𝟒!} \color{#b5e619}{[𝐓𝐡𝐞 𝐁𝐥𝐮𝐞 𝐇𝐮𝐦𝐚𝐧]}}$
 
+$\text{\color{#6495ED}{✮}}$ <a href="https://github.com/AstroXDazzle" style="color: #6495ED;">@𝐀𝐬𝐭𝐫𝐨𝐗𝐃𝐚𝐳𝐳𝐥𝐞</a> $\text{\color{#6495ED}{𝐢𝐬 𝐊𝐧𝐨𝐱'𝐬} \color{#75CDE0}{𝐄𝐯𝐞𝐧𝐭} \color{#4169A1}{𝐀𝐬𝐭𝐫𝐨!} \color{#29265C}{[𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
+
 </p>
 
 <!---
