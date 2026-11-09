@@ -518,7 +518,7 @@ $\text{\color{#ff4fa3}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧𝐬
 
 $\text{\color{#ffb347}{†}}$ <a href="https://github.com/9thharbinger" style="color: #e68a24;">@9𝐭𝐡𝐡𝐚𝐫𝐛𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#e68a24}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#c96b1b}{𝐉𝐚𝐯𝐢𝐞𝐫 𝐄𝐬𝐜𝐮𝐞𝐥𝐥𝐚!} \color{#a94f17}{[𝐑𝐃𝐑𝟏/𝟐]}}$
 
-$\text{\color{#b6ac9d}{†}}$ <a href="https://github.com/NocturnalWhisper" style="color: #b6ac9d;">@𝐍𝐨𝐜𝐭𝐮𝐫𝐧𝐚𝐥𝐖𝐡𝐢𝐬𝐩𝐞𝐫</a> $\text{\color{#b6ac9d}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#72bfc0}{𝐒𝐤𝐢𝐝'𝐬 𝐃𝐚𝐝!} \color{#468f91}{[𝐒𝐩𝐨𝐨𝐤𝐲 𝐌𝐨𝐧𝐭𝐡]}}$
+$\text{\color{#40e0d0}{†}}$ <a href="https://github.com/NocturnalWhisper" style="color: #40e0d0;">@𝐍𝐨𝐜𝐭𝐮𝐫𝐧𝐚𝐥𝐖𝐡𝐢𝐬𝐩𝐞𝐫</a> $\text{\color{#40e0d0}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#20b2aa}{𝐒𝐤𝐢𝐝'𝐬 𝐃𝐚𝐝!} \color{#008b8b}{[𝐒𝐩𝐨𝐨𝐤𝐲 𝐌𝐨𝐧𝐭𝐡]}}$
 
 </p>
 
