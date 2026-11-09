@@ -407,7 +407,7 @@ $\text{\color{#B5C900}{꒰ 🍀 ꒱}}$ <a href="https://github.com/futuristic-ma
 
 $\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#187a35}{𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐮𝐤𝐮𝐚! [𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
 
-$\text{\color{#278b45}{☣}}$ <a href="https://github.com/6-bloodhound-6" style="color: #278b45;">@𝟔-𝐛𝐥𝐨𝐨𝐝𝐡𝐨𝐮𝐧𝐝-𝟔</a> $\text{\color{#278b45}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#42b85a}{𝐓𝐡𝐨𝐦𝐚𝐬} \color{#72d66b}{(ˆ_ˆ/𝐇𝐖𝐖𝐇𝐏)} \color{#42b85a}{𝐀𝐧𝐝} \color{#278b45}{𝐅𝐫𝐞𝐬𝐡 "𝐒𝐚𝐧𝐬"!} \color{#278b45}{[𝐔𝐓𝐌𝐕]}}$
+$\text{\color{#278b45}{☣}}$ <a href="https://github.com/6-bloodhound-6" style="color: #278b45;">@𝟔-𝐛𝐥𝐨𝐨𝐝𝐡𝐨𝐮𝐧𝐝-𝟔</a> $\text{\color{#278b45}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#42b85a}{𝐓𝐡𝐨𝐦𝐚𝐬} \color{#72d66b}{(ˆ⎯ˆ/𝐇𝐖𝐖𝐇𝐏)} \color{#42b85a}{𝐀𝐧𝐝} \color{#278b45}{𝐅𝐫𝐞𝐬𝐡 "𝐒𝐚𝐧𝐬"!} \color{#278b45}{[𝐔𝐓𝐌𝐕]}}$
 
 
 </p>
