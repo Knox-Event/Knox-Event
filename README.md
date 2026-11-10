@@ -210,6 +210,9 @@ $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Supreme-Angel" style="
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/nereherrman" style="color: #FFDC19;">@𝐧𝐞𝐫𝐞𝐡𝐞𝐫𝐫𝐦𝐚𝐧</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐞𝐠𝐨𝐫! [𝐋𝐢𝐦𝐛𝐮𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲]}}$
 
+$\text{\color{#FFB6D9}{♡}}$ <a href="https://github.com/polusoutpost" style="color: #FF8FC8;">@𝐩𝐨𝐥𝐮𝐬𝐨𝐮𝐭𝐩𝐨𝐬𝐭</a> $\text{\color{#FF8FC8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#F06BAE}{𝐏𝐢𝐧𝐤!} \color{#D94B91}{[𝐕𝐬. 𝐈𝐦𝐩𝐨𝐬𝐭𝐨𝐫 • 𝐅𝐍𝐅 𝐌𝐨𝐝]}}$ <br>
+$\text{\color{#FFB6D9}{𝐀𝐧𝐝 𝐏𝐞𝐫𝐟𝐞𝐜𝐭 𝐁𝐫𝐚𝐧𝐝𝐞𝐝 𝐄𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞𝐬} \color{#F06BAE}{♪ 𝐁𝐲} \color{#D94B91}{𝐍𝐞𝐫𝐨'𝐬 𝐃𝐚𝐲 𝐚𝐭 𝐃𝐢𝐬𝐧𝐞𝐲𝐥𝐚𝐧𝐝}}$
+
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/screworangeslugs" style="color: #FFDC19;">@𝐬𝐜𝐫𝐞𝐰𝐨𝐫𝐚𝐧𝐠𝐞𝐬𝐥𝐮𝐠𝐬</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐞𝐰𝐛𝐢𝐞! [𝐇𝐨𝐨𝐩𝐬 𝐚𝐧𝐝 𝐘𝐨𝐲𝐨]}}$
 
 $\text{\color{#FFDC19}{✮}}$ <a href="https://github.com/Heart0fGold" style="color: #FFDC19;">@𝐇𝐞𝐚𝐫𝐭𝟎𝐟𝐆𝐨𝐥𝐝</a> $\text{\color{#FFDC19}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐚𝐫𝐥! [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$<br>
@@ -352,6 +355,8 @@ $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/itrap-2245" style="col
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/yubelsrevenge" style="color: #B5C900;">@𝐲𝐮𝐛𝐞𝐥𝐬𝐫𝐞𝐯𝐞𝐧𝐠𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐮𝐝𝐚𝐢 𝐘𝐮𝐤𝐢 ! [𝐘𝐮-𝐆𝐢-𝐎𝐡 𝐆𝐗]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/disorderlyfashion" style="color: #B5C900;">@𝐝𝐢𝐬𝐨𝐫𝐝𝐞𝐫𝐥𝐲𝐟𝐚𝐬𝐡𝐢𝐨𝐧 </a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐩𝐡! [𝐓𝐌𝐍𝐓 𝟐𝟎𝟏𝟐]}}$
+
+$\text{\color{#D93636}{☣}}$ <a href="https://github.com/TONEEDEAFF" style="color: #D93636;">@𝐓𝐎𝐍𝐄𝐄𝐃𝐄𝐀𝐅𝐅</a> $\text{\color{#D93636}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#FFFFFF}{𝐑𝐞𝐚𝐩𝐞𝐫!} \color{#D93636}{[𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
 
 $\text{\color{#B5C900}{☣}}$ <a href="https://github.com/CHROMAKOPlA" style="color: #B5C900;">@𝐂𝐇𝐑𝐎𝐌𝐀𝐊𝐎𝐏𝐥𝐀</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐝𝐚𝐢𝐨𝐫𝐠! [𝐑𝐨𝐛𝐥𝐨𝐱 𝐘𝐨𝐮𝐭𝐮𝐛𝐞𝐫𝐬]}}$
 
