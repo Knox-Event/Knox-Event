@@ -14,7 +14,7 @@ Knox Event Update Log: <br>
 
 November 10th. <br>
 
-![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) hi every1 We're currently on a break this week, so your nomination will remain not being responded yet until We're back at it. You may **NOT** spam Our inbox too. Farewell!
+![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) hi every1 We're currently on a break this week, so your nomination will remain not being responded yet until We're back at it. You may **NOT** spam Our inbox too.
 
 — hwobae <br>
 
