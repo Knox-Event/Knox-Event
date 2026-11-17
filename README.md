@@ -12,9 +12,11 @@
 
 Knox Event Update Log: <br>
 
-November 10th. <br>
+November 1&th. <br>
 
-![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) hi every1 We're currently on a break this week, so your nomination will remain not being responded yet until We're back at it. You may **NOT** spam Our inbox too.
+![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) hello!! We're now open and accepting ur noms along with few of ur REQs:3.
+
+- if you havent noticed, We removed the default colors for each categories to preserve that github code format error if you remembered, you **can** still request for your own **color[s]/gradient** in only **minimum of 2**!
 
 — hwobae <br>
 
@@ -331,52 +333,60 @@ $\text{\color{#a10000}{[𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
 $\text{\color{#a1a100}{﹙♊︎﹚}}$ <a href="https://github.com/TvvinArmageddons" style="color: #a1a100;">@𝚃𝚟𝚟𝚒𝚗𝙰𝚛𝚖𝚊𝚐𝚎𝚍𝚍𝚘𝚗𝚜</a> $\text{\color{#a1a100}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝚂𝚘𝚕𝚕𝚞𝚡 𝙲𝚊𝚙𝚝𝚘𝚛! [𝙷𝚘𝚖𝚎𝚜𝚝𝚞𝚌𝚔]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/livingforest" style="color: #B5C900;">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚!}}$<br>
-$\text{\color{#B5C900}{[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰]}}$<br>
-
 $\text{\color{#482c56}{꒰ ✦ ꒱}}$ <a href="https://github.com/UNLEASH-NOLI" style="color: #482c56;">@𝐔𝐍𝐋𝐄𝐀𝐒𝐇-𝐍𝐎𝐋𝐈</a> $\text{\color{#482c56}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐨𝐥𝐢! [𝐑𝐎𝐁𝐋𝐎𝐗]}}$
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/5orrows" style="color: #B5C900;">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]}}$
 
 $\text{\color{#00d2be}{꒰ 🍝🏁 ꒱}}$ <a href="https://github.com/AntoneIIi" style="color: #00d2be;">@𝐀𝐧𝐭𝐨𝐧𝐞𝐈𝐈𝐢</a> $\text{\color{#00d2be}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐢𝐦𝐢 𝐀𝐧𝐭𝐨𝐧𝐞𝐥𝐥𝐢!}}$
 
 $\text{\color{#8050A8}{☣}}$ <a href="https://github.com/crazybloxer" style="color: #8050A8;">@𝐜𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱𝐞𝐫</a> $\text{\color{#8050A8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱! [𝐅𝐥𝐨𝐨𝐝 𝐄𝐬𝐜𝐚𝐩𝐞 𝟐]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/itrap-2245" style="color: #B5C900;">@𝐢𝐭𝐫𝐚𝐩-𝟐𝟐𝟒𝟓</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐢𝐓𝐫𝐚𝐩𝐩𝐞𝐝 ! [𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍/𝐌𝐌𝟏𝟐]}}$
+☣ <a href="https://github.com/livingforest">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚! <br>
+[𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰] <br>
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/yubelsrevenge" style="color: #B5C900;">@𝐲𝐮𝐛𝐞𝐥𝐬𝐫𝐞𝐯𝐞𝐧𝐠𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐮𝐝𝐚𝐢 𝐘𝐮𝐤𝐢 ! [𝐘𝐮-𝐆𝐢-𝐎𝐡 𝐆𝐗]}}$
+☣ <a href="https://github.com/5orrows">@𝟓𝐨𝐫𝐫𝐨𝐰𝐬</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐜𝐡𝐢𝐠𝐨 𝐊𝐮𝐫𝐨𝐬𝐚𝐤𝐢 ! [𝐁𝐥𝐞𝐚𝐜𝐡]
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/disorderlyfashion" style="color: #B5C900;">@𝐝𝐢𝐬𝐨𝐫𝐝𝐞𝐫𝐥𝐲𝐟𝐚𝐬𝐡𝐢𝐨𝐧 </a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐩𝐡! [𝐓𝐌𝐍𝐓 𝟐𝟎𝟏𝟐]}}$
+☣ <a href="https://github.com/itrap-2245">@𝐢𝐭𝐫𝐚𝐩-𝟐𝟐𝟒𝟓</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐢𝐓𝐫𝐚𝐩𝐩𝐞𝐝 ! [𝐅𝐎𝐑𝐒𝐀𝐊𝐄𝐍/𝐌𝐌𝟏𝟐]
+
+☣ <a href="https://github.com/yubelsrevenge">@𝐲𝐮𝐛𝐞𝐥𝐬𝐫𝐞𝐯𝐞𝐧𝐠𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐮𝐝𝐚𝐢 𝐘𝐮𝐤𝐢 ! [𝐘𝐮-𝐆𝐢-𝐎𝐡 𝐆𝐗]
+
+☣ <a href="https://github.com/disorderlyfashion">@𝐝𝐢𝐬𝐨𝐫𝐝𝐞𝐫𝐥𝐲𝐟𝐚𝐬𝐡𝐢𝐨𝐧 </a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐩𝐡! [𝐓𝐌𝐍𝐓 𝟐𝟎𝟏𝟐]
+
+☣ <a href="https://github.com/CHROMAKOPlA">@𝐂𝐇𝐑𝐎𝐌𝐀𝐊𝐎𝐏𝐥𝐀</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐝𝐚𝐢𝐨𝐫𝐠! [𝐑𝐨𝐛𝐥𝐨𝐱 𝐘𝐨𝐮𝐭𝐮𝐛𝐞𝐫𝐬]
+
+☣ <a href="https://github.com/biteofme">@𝐛𝐢𝐭𝐞𝐨𝐟𝐦𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐥𝐨𝐞 𝐏𝐫𝐢𝐜𝐞! [𝐋𝐢𝐟𝐞 𝐢𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]
+
+
+☣ <a href="https://github.com/Ham-milton">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! <br>
+[𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] <br>
+
+☣ <a href="https://github.com/juliekoctavia">@𝐣𝐮𝐥𝐢𝐞𝐤𝐨𝐜𝐭𝐚𝐯𝐢𝐚</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐠𝐮𝐫𝐮 𝐆𝐞𝐭𝐨! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]
+
+☣ <a href="https://github.com/BetrayedNotes">@𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝𝐍𝐨𝐭𝐞𝐬</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝 𝟏𝐱𝟏𝐱𝟏𝐱𝟏! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]
+
+☣ <a href="https://github.com/engelchi">@𝐞𝐧𝐠𝐞𝐥𝐜𝐡𝐢</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐭𝐬𝐮𝐤𝐢! [𝐃𝐃𝐋𝐂]
+
+ ༉‧₊˚✧ <a href="https://github.com/rarepiplash">@𝐫𝐚𝐫𝐞𝐩𝐢𝐩𝐥𝐚𝐬𝐡</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐫𝐞 𝐏𝐢𝐩𝐥𝐚𝐬𝐡! [𝐌𝐒𝐌]
+
+☣ <a href="https://github.com/JessieeXD">@𝐉𝐞𝐬𝐬𝐢𝐞𝐞𝐗𝐃</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐚𝐧𝐭𝐚 𝐒𝐞𝐫𝐨! [𝐌𝐲 𝐇𝐞𝐫𝐨 𝐀𝐜𝐚𝐝𝐞𝐦𝐢𝐚]
+
+☣ <a href="https://github.com/FORENSIC-AUTOPSY">@𝐅𝐎𝐑𝐄𝐍𝐒𝐈𝐂-𝐀𝐔𝐓𝐎𝐏𝐒𝐘</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐨𝐨𝐭𝐡𝐢𝐥𝐥! [𝐇𝐨𝐧𝐤𝐚𝐢 𝐒𝐭𝐚𝐫 𝐑𝐚𝐢𝐥]
+
+☣ <a href="https://github.com/qnakin">@𝐪𝐧𝐚𝐤𝐢𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐚𝐤𝐢𝐧 𝐒𝐤𝐲𝐰𝐚𝐥𝐤𝐞𝐫! [𝐒𝐭𝐚𝐫 𝐖𝐚𝐫𝐬]
+
+☣ <a href="https://github.com/PlanticNurii">@𝐏𝐥𝐚𝐧𝐭𝐢𝐜𝐍𝐮𝐫𝐢𝐢</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐝𝐫𝐞𝐰! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
+
+꒰ 🍀 ꒱ <a href="https://github.com/futuristic-maniac">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]
 
 $\text{\color{#D93636}{☣}}$ <a href="https://github.com/TONEEDEAFF" style="color: #D93636;">@𝐓𝐎𝐍𝐄𝐄𝐃𝐄𝐀𝐅𝐅</a> $\text{\color{#D93636}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#FFFFFF}{𝐑𝐞𝐚𝐩𝐞𝐫!} \color{#D93636}{[𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/CHROMAKOPlA" style="color: #B5C900;">@𝐂𝐇𝐑𝐎𝐌𝐀𝐊𝐎𝐏𝐥𝐀</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐝𝐚𝐢𝐨𝐫𝐠! [𝐑𝐨𝐛𝐥𝐨𝐱 𝐘𝐨𝐮𝐭𝐮𝐛𝐞𝐫𝐬]}}$
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/biteofme" style="color: #B5C900;">@𝐛𝐢𝐭𝐞𝐨𝐟𝐦𝐞</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐥𝐨𝐞 𝐏𝐫𝐢𝐜𝐞! [𝐋𝐢𝐟𝐞 𝐢𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]}}$
-
 $\text{\color{#7654A8}{☯}}$ <a href="https://github.com/wifiesh">@𝐰𝐢𝐟𝐢𝐞𝐬𝐡</a> $\text{\color{#7654A8}{𝐢𝐬} \color{#8059A9}{𝐊𝐧𝐨𝐱} \color{#895FAB}{𝐄𝐯𝐞𝐧𝐭'}\color{#9163AC}{𝐬} \color{#9964AA}{𝐖𝐢𝐟𝐢𝐞𝐬} \color{#9E65A7}{𝐀𝐧𝐝} \color{#A064A4}{𝐏𝐚𝐫𝐫𝐨𝐭𝐱𝟐!} \color{#965B9D}{[𝐔𝐔𝐒𝐌𝐏]}}$
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/BetrayedNotes" style="color: #B5C900;">@𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝𝐍𝐨𝐭𝐞𝐬</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐞𝐭𝐫𝐚𝐲𝐞𝐝 𝟏𝐱𝟏𝐱𝟏𝐱𝟏! [𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/Ham-milton" style="color: #B5C900;">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫!}}$<br>
-$\text{\color{#B5C900}{[𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫]}}$<br>
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/juliekoctavia" style="color: #B5C900;">@𝐣𝐮𝐥𝐢𝐞𝐤𝐨𝐜𝐭𝐚𝐯𝐢𝐚</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐮𝐠𝐮𝐫𝐮 𝐆𝐞𝐭𝐨! [𝐉𝐮𝐣𝐮𝐭𝐬𝐮 𝐊𝐚𝐢𝐬𝐞𝐧]}}$
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/engelchi" style="color: #B5C900;">@𝐞𝐧𝐠𝐞𝐥𝐜𝐡𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐭𝐬𝐮𝐤𝐢! [𝐃𝐃𝐋𝐂]}}$
 
 $\text{\color{#718B9B}{☣}}$ <a href="https://github.com/TrenchDogs">@𝐓𝐫𝐞𝐧𝐜𝐡𝐃𝐨𝐠𝐬</a> $\text{\color{#718B9B}{𝐢𝐬} \color{#778F9D}{𝐊𝐧𝐨𝐱} \color{#8094A0}{𝐄𝐯𝐞𝐧𝐭'}\color{#8999A3}{𝐬} \color{#929DA4}{𝐂𝐚𝐫𝐫𝐢𝐞!} \color{#89949D}{[𝐄𝐫𝐬𝐚𝐭𝐳]}}$
 
 $\text{\color{#66d9bf}{⨂}}$ <a href="https://github.com/5P-25" style="color: #66d9bf;">@𝟓𝐏-𝟐𝟓</a> $\text{\color{#66d9bf}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐈𝐕𝐄 𝐏𝐄𝐁𝐁𝐋𝐄𝐒! [𝐑𝐀𝐈𝐍 𝐖𝐎𝐑𝐋𝐃]}}$
 
-$\text{\color{#B5C900}{ ༉‧₊˚✧ }}$ <a href="https://github.com/rarepiplash" style="color: #B5C900;">@𝐫𝐚𝐫𝐞𝐩𝐢𝐩𝐥𝐚𝐬𝐡</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐫𝐞 𝐏𝐢𝐩𝐥𝐚𝐬𝐡! [𝐌𝐒𝐌]}}$
 
 $\text{\color{#b000ff}{𐔌🐇 ꒱ ˖}}$ <a href="https://github.com/VALENTIN-RENEGADE" style="color: #b000ff;">@𝐕𝐀𝐋𝐄𝐍𝐓𝐈𝐍-𝐑𝐄𝐍𝐄𝐆𝐀𝐃𝐄</a> $\text{\color{#b000ff}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐥𝐢𝐭𝐜𝐡𝐭𝐫𝐚𝐩!}}$<br>
 $\text{\color{#b000ff}{[𝐅𝐍𝐀𝐅 𝐕𝐑: 𝐇𝐞𝐥𝐩 𝐖𝐚𝐧𝐭𝐞𝐝]}}$<br>
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/JessieeXD" style="color: #B5C900;">@𝐉𝐞𝐬𝐬𝐢𝐞𝐞𝐗𝐃</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐚𝐧𝐭𝐚 𝐒𝐞𝐫𝐨! [𝐌𝐲 𝐇𝐞𝐫𝐨 𝐀𝐜𝐚𝐝𝐞𝐦𝐢𝐚] }}$
-
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/FORENSIC-AUTOPSY" style="color: #B5C900;">@𝐅𝐎𝐑𝐄𝐍𝐒𝐈𝐂-𝐀𝐔𝐓𝐎𝐏𝐒𝐘</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐁𝐨𝐨𝐭𝐡𝐢𝐥𝐥! [𝐇𝐨𝐧𝐤𝐚𝐢 𝐒𝐭𝐚𝐫 𝐑𝐚𝐢𝐥]}}$
 
 $\text{\color{#e30540}{꒰ ❤️ 🔪 ꒱}}$ <a href="https://github.com/fallenssoul" style="color: #e30540;">@𝐟𝐚𝐥𝐥𝐞𝐧𝐬𝐬𝐨𝐮𝐥</a> $\text{\color{#e30540}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐚𝐫𝐚! [𝐔𝐧𝐝𝐞𝐫𝐭𝐚𝐥𝐞]}}$
 
@@ -389,19 +399,13 @@ $\text{\color{#4365B3}{𖦏}}$ <a href="https://github.com/starfollower" style="
 
 $\text{\color{#760029}{☣}}$ <a href="https://github.com/Rydenyuri" style="color: #760029;">@𝐑𝐲𝐝𝐞𝐧𝐲𝐮𝐫𝐢</a> $\text{\color{#760029}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐲𝐚𝐧 𝐑𝐨𝐬𝐬! [𝐏𝐚𝐧𝐢𝐜! 𝐀𝐭 𝐓𝐡𝐞 𝐃𝐢𝐬𝐜𝐨]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/qnakin" style="color: #B5C900;">@𝐪𝐧𝐚𝐤𝐢𝐧</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐚𝐤𝐢𝐧 𝐒𝐤𝐲𝐰𝐚𝐥𝐤𝐞𝐫! [𝐒𝐭𝐚𝐫 𝐖𝐚𝐫𝐬]}}$
-
 $\text{\color{#E73312}{૮˶- ﻌ -˶ა⌒﹚ᦱ}}$ <a href="https://github.com/spam-tune" style="color: #E73312;">@𝐬𝐩𝐚𝐦-𝐭𝐮𝐧𝐞</a> $\text{\color{#E73312}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐞𝐧𝐧𝐚 + 𝐒𝐩𝐚𝐦𝐭𝐨𝐧! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞]}}$
 
 $\text{\color{#8B0000}{꒰ 🗡️ ꒱}}$ <a href="https://github.com/CrisisShow" style="color: #8B0000;">@𝐂𝐫𝐢𝐬𝐢𝐬𝐒𝐡𝐨𝐰</a> $\text{\color{#8B0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐢𝐤𝐢! [𝐓𝐨𝐠𝐚𝐢𝐧𝐮 𝐍𝐨 𝐂𝐡𝐢]}}$
 
-$\text{\color{#B5C900}{☣}}$ <a href="https://github.com/PlanticNurii" style="color: #B5C900;">@𝐏𝐥𝐚𝐧𝐭𝐢𝐜𝐍𝐮𝐫𝐢𝐢</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐝𝐫𝐞𝐰! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]}}$
-
 $\text{\color{#2BBF9F}{𖦏}}$ <a href="https://github.com/elli0t_thec00ll" style="color: #2BBF9F;">@𝐞𝐥𝐥𝐢𝟎𝐭_𝐭𝐡𝐞𝐜𝟎𝟎𝐥𝐥</a> $\text{\color{#2BBF9F}{𝐢𝐬} \color{#27A98C}{𝐊𝐧𝐨𝐱} \color{#22937C}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#1E7D6C}{𝐒𝐜𝐲𝐭𝐡𝐞} \color{#19675C}{𝐑𝐢𝐟𝐥𝐞!} \color{#145C50}{[𝐏𝐡𝐢𝐠𝐡𝐭𝐢𝐧𝐠]}}$ <br>
 $\text{\color{#2BBF9F}{𝐀𝐧𝐝} \color{#22937C}{𝐓𝐡𝐞} \color{#19675C}{𝐌𝐨𝐬𝐭} \color{#145C50}{𝐖𝐚𝐧𝐭𝐞𝐝} \color{#145C50}{♪}}$ <br>
 $\text{\color{#2BBF9F}{𝐁𝐲} \color{#19675C}{𝐁𝐨𝐠𝐠𝐢𝐨!}}$
-
-$\text{\color{#B5C900}{꒰ 🍀 ꒱}}$ <a href="https://github.com/futuristic-maniac" style="color: #B5C900;">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> $\text{\color{#B5C900}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]}}$
 
 $\text{\color{#0e632d}{☣}}$ <a href="https://github.com/ReplicaOfAffection" style="color: #187a35;">@𝐑𝐞𝐩𝐥𝐢𝐜𝐚𝐎𝐟𝐀𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧</a> $\text{\color{#0e632d}{𝐢𝐬 𝐊𝐧𝐨𝐱} \color{#187a35}{𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐮𝐤𝐮𝐚! [𝐒𝐤𝐮𝐥𝐥𝐠𝐢𝐫𝐥𝐬]}}$
 
@@ -438,54 +442,61 @@ $\text{\color{#7E4C4C}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧:} \
 
 $\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
 
-$\text{\color{#f80202}{U ´꓃ ` U}}$ <a href="https://github.com/hoobae" style="color: #B5C900;">@𝐡𝐨𝐨𝐛𝐚𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]}}$
-
-$\text{\color{#f80202}{⸜﹙´ ꒳ ` ﹚⸝}}$ <a href="https://github.com/smith-kingsley" style="color: #B5C900;">@𝐬𝐦𝐢𝐭𝐡-𝐤𝐢𝐧𝐠𝐬𝐥𝐞𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐎𝐥𝐥𝐢𝐞 𝐏𝐥𝐢𝐦𝐬𝐨𝐥𝐥𝐬 𝐀𝐧𝐝 𝐑𝐞𝐞𝐜𝐞 𝐒𝐡𝐞𝐚𝐫𝐬𝐦𝐢𝐭𝐡!}}$ <br>
-$\text{\color{#f80202}{[𝐓𝐡𝐞 𝐋𝐞𝐚𝐠𝐮𝐞 𝐨𝐟 𝐆𝐞𝐧𝐭𝐥𝐞𝐦𝐞𝐧]}}$
 
 $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="color: #268FE8;">@𝐣𝐚𝐳𝐳𝐲𝐦𝐚𝐠𝐞</a> $\text{\color{#268FE8}{𝐢𝐬} \color{#347BCB}{𝐊𝐧𝐨𝐱} \color{#416BAE}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#405D91}{𝐇𝐮𝐧𝐭𝐞𝐫!} \color{#394E76}{[𝐋𝐞𝐟𝐭} \color{#35445F}{𝟒} \color{#303B4B}{𝐃𝐞𝐚𝐝]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/monitorgirlfriend" style="color: #B5C900;">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮!}}$<br>
-$\text{\color{#f80202}{[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}}$<br>
+U ´꓃ ` U <a href="https://github.com/hoobae">@𝐡𝐨𝐨𝐛𝐚𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐳𝐢! [𝐀𝐋𝐍𝐒𝐓/𝐙𝐎𝐌𝐒𝐓]
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/T0R4X" style="color: #B5C900;">@𝐓𝟎𝐑𝟒𝐗</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝}}$<br>
-$\text{\color{#f80202}{𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭]}}$<br>
+⸜﹙´ ꒳ ` ﹚⸝ <a href="https://github.com/smith-kingsley">@𝐬𝐦𝐢𝐭𝐡-𝐤𝐢𝐧𝐠𝐬𝐥𝐞𝐲</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐎𝐥𝐥𝐢𝐞 𝐏𝐥𝐢𝐦𝐬𝐨𝐥𝐥𝐬 𝐀𝐧𝐝 𝐑𝐞𝐞𝐜𝐞 𝐒𝐡𝐞𝐚𝐫𝐬𝐦𝐢𝐭𝐡! <br>
+[𝐓𝐡𝐞 𝐋𝐞𝐚𝐠𝐮𝐞 𝐨𝐟 𝐆𝐞𝐧𝐭𝐥𝐞𝐦𝐞𝐧]
 
-$\text{\color{#f80202}{ˆ﹏ˆ}}$ <a href="https://github.com/fou11egacy" style="color: #B5C900;">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 !}}$<br>
-$\text{\color{#f80202}{[𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$<br>
+† <a href="https://github.com/monitorgirlfriend">@𝐦𝐨𝐧𝐢𝐭𝐨𝐫𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐫. 𝐙𝐲𝐧 𝐊𝐢𝐫𝐲𝐮! <br>
+[𝐓𝐡𝐞 𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧] <br>
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/Blame-John" style="color: #B5C900;">@𝐁𝐥𝐚𝐦𝐞-𝐉𝐨𝐡𝐧</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐞𝐝𝐥𝐞𝐭𝐬𝐤𝐲! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
+† <a href="https://github.com/T0R4X">@𝐓𝟎𝐑𝟒𝐗</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐞𝐝𝐢𝐜! [𝐓𝐞𝐚𝐦 𝐅𝐨𝐫𝐭𝐫𝐞𝐬𝐬 𝟐] 𝐀𝐧𝐝 <br>
+𝐇𝐞𝐜𝐭𝐨𝐫𝟎𝐧 (𝐌𝐚𝐭𝐭)! [𝐒𝐞𝐫𝐯𝐞𝐫𝐛𝐥𝐢𝐠𝐡𝐭] <br>
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/Senjurochistic" style="color: #B5C900;">@𝐒𝐞𝐧𝐣𝐮𝐫𝐨𝐜𝐡𝐢𝐬𝐭𝐢𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐞𝐧𝐣𝐮𝐫𝐨 𝐑𝐞𝐧𝐠𝐨𝐤𝐮! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
+ˆ﹏ˆ <a href="https://github.com/fou11egacy">@𝐟𝐨𝐮𝟏𝟏𝐞𝐠𝐚𝐜𝐲</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐚𝐫𝐭𝐚𝐠𝐥𝐢𝐚 𝐀𝐣𝐚𝐱 𝐂𝐡𝐢𝐥𝐝𝐞 ! <br>
+[𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭] <br>
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/AutopsiedGore" style="color: #B5C900;">@𝐀𝐮𝐭𝐨𝐩𝐬𝐢𝐞𝐝𝐆𝐨𝐫𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐠𝐮𝐫𝐨 𝐎𝐛𝐚𝐧𝐚𝐢! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]}}$
+† <a href="https://github.com/Blame-John">@𝐁𝐥𝐚𝐦𝐞-𝐉𝐨𝐡𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐡𝐞𝐝𝐥𝐞𝐭𝐬𝐤𝐲! [𝐑𝐨𝐛𝐥𝐨𝐱]
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/sw33tsug4rcookie" style="color: #B5C900;">@𝐬𝐰𝟑𝟑𝐭𝐬𝐮𝐠𝟒𝐫𝐜𝐨𝐨𝐤𝐢𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐆𝐢𝐧𝐠𝐞𝐫! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
+† <a href="https://github.com/Senjurochistic">@𝐒𝐞𝐧𝐣𝐮𝐫𝐨𝐜𝐡𝐢𝐬𝐭𝐢𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐞𝐧𝐣𝐮𝐫𝐨 𝐑𝐞𝐧𝐠𝐨𝐤𝐮! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]
+
+† <a href="https://github.com/AutopsiedGore">@𝐀𝐮𝐭𝐨𝐩𝐬𝐢𝐞𝐝𝐆𝐨𝐫𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐠𝐮𝐫𝐨 𝐎𝐛𝐚𝐧𝐚𝐢! [𝐃𝐞𝐦𝐨𝐧 𝐒𝐥𝐚𝐲𝐞𝐫]
+
+† <a href="https://github.com/sw33tsug4rcookie">@𝐬𝐰𝟑𝟑𝐭𝐬𝐮𝐠𝟒𝐫𝐜𝐨𝐨𝐤𝐢𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐆𝐢𝐧𝐠𝐞𝐫! [𝐃𝐚𝐧𝐝𝐲𝐬 𝐖𝐨𝐫𝐥𝐝]
+
+† <a href="https://github.com/d0ombringer">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]
+
+꒰ 🔪🩸🌹 ꒱ <a href="https://github.com/dead-blooming-roses">@𝐝𝐞𝐚𝐝-𝐛𝐥𝐨𝐨𝐦𝐢𝐧𝐠-𝐫𝐨𝐬𝐞𝐬</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐡𝐨𝐬𝐭𝐟𝐚𝐜𝐞!
+
+† <a href="https://github.com/DocHale">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]
+
+† <a href="https://github.com/cobblebob">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]
+
+† <a href="https://github.com/Chemicalshot">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚! <br>
+[𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬] <br>
+
+† <a href="https://github.com/sicklyrose">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]
+
+🜼 <a href="https://github.com/CherrieJam">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]
+
+♡ <a href="https://github.com/danznc">@𝐝𝐚𝐧𝐳𝐧𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]
+
+﹙⇀‸↼‶﹚🚬 <a href="https://github.com/jsschlatt">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭! [𝐌𝐂𝐘𝐓]
+
+꒰ 🪓 ꒱ <a href="https://github.com/sharpfrostcherv">@𝐬𝐡𝐚𝐫𝐩𝐟𝐫𝐨𝐬𝐭𝐜𝐡𝐞𝐫𝐯</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐯𝐚𝐧! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
+
+† <a href="https://github.com/cherrip1e">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]
 
 $\text{\color{#ab831f}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #ab831f;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#ab831f}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
 $\text{\color{#25ba8d}{𝐀𝐧𝐝 𝐈𝐭𝐨𝐬𝐡𝐢}}$ $\text{\color{#17786d}{𝐑𝐢𝐧! [𝐁𝐥𝐮𝐞}}$
 $\text{\color{#175478}{𝐋𝐨𝐜𝐤]}}$
 
-$\text{\color{#f80202}{꒰ 🔪🩸🌹 ꒱}}$ <a href="https://github.com/dead-blooming-roses" style="color: #B5C900;">@𝐝𝐞𝐚𝐝-𝐛𝐥𝐨𝐨𝐦𝐢𝐧𝐠-𝐫𝐨𝐬𝐞𝐬</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐡𝐨𝐬𝐭𝐟𝐚𝐜𝐞!}}$
-
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/DocHale" style="color: #B5C900;">@𝐃𝐨𝐜𝐇𝐚𝐥𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐋𝐢𝐰𝐞𝐧! [𝐓𝐡𝐞 𝐖𝐚𝐲 𝐎𝐟 𝐋𝐞𝐚𝐫]}}$
-
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/d0ombringer" style="color: #B5C900;">@𝐝𝟎𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐦𝐫𝐝𝐨𝐨𝐦𝐛𝐫𝐢𝐧𝐠𝐞𝐫! [𝐑𝐨𝐛𝐥𝐨𝐱]}}$
-
 $\text{\color{#EF3038}{꒰ 🔪 ꒱}}$ <a href="https://github.com/jeverus" style="color: #E52B35;">@𝐣𝐞𝐯𝐞𝐫𝐮𝐬</a> $\text{\color{#D52B35}{𝐢𝐬 𝐊𝐧𝐨𝐱}}$ $\text{\color{#BD2431}{𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#A51D2B}{𝐒𝐥𝐚𝐬𝐡𝐞𝐫!}}$ $\text{\color{#841522}{[𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧]}}$
 
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/cobblebob" style="color: #B5C900;">@𝐜𝐨𝐛𝐛𝐥𝐞𝐛𝐨𝐛</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐅𝐨𝐨𝐭 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! [𝐏𝐥𝐚𝐧𝐭𝐬 𝐕𝐬. 𝐙𝐨𝐦𝐛𝐢𝐞𝐬]}}$
-
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/Chemicalshot" style="color: #B5C900;">@𝐂𝐡𝐞𝐦𝐢𝐜𝐚𝐥𝐬𝐡𝐨𝐭</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐮𝐬𝐬𝐢𝐚!}}$<br>
-$\text{\color{#f80202}{[𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐇𝐮𝐦𝐚𝐧𝐬/𝐂𝐨𝐮𝐧𝐭𝐫𝐲𝐁𝐚𝐥𝐥𝐬]}}$<br>
-
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/sicklyrose" style="color: #B5C900;">@𝐬𝐢𝐜𝐤𝐥𝐲𝐫𝐨𝐬𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐮𝐭𝐚𝐠𝐚𝐰𝐚 𝐑𝐲ū𝐧𝐨𝐬𝐮𝐤𝐞! [𝐁𝐒𝐃]}}$
-
-$\text{\color{#f80202}{🜼}}$ <a href="https://github.com/CherrieJam" style="color: #B5C900;">@𝐂𝐡𝐞𝐫𝐫𝐢𝐞𝐉𝐚𝐦</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐖𝐢𝐧𝐝𝐛𝐥𝐚𝐝𝐞! [𝐓𝐫𝐚𝐧𝐬𝐟𝐨𝐫𝐦𝐞𝐫𝐬]}}$
-
 $\text{\color{#C91E24}{𐔌 🌕🎀 ꒱ ˖}}$ <a href="https://github.com/forgedshadows">@𝐟𝐨𝐫𝐠𝐞𝐝𝐬𝐡𝐚𝐝𝐨𝐰𝐬</a> $\text{\color{#C91E24}{𝐢𝐬} \color{#B51A20}{𝐊𝐧𝐨𝐱} \color{#A3161D}{𝐄𝐯𝐞𝐧𝐭'}\color{#8E141B}{𝐬} \color{#761218}{𝐑𝐮𝐦𝐢𝐚!} \color{#5C1017}{[𝐓𝐨𝐮𝐡𝐨𝐮} \color{#3D0B12}{𝐏𝐫𝐨𝐣𝐞𝐜𝐭]}}$
-
-$\text{\color{#f80202}{♡}}$ <a href="https://github.com/danznc" style="color: #B5C900;">@𝐝𝐚𝐧𝐳𝐧𝐜</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]}}$
 
 $\text{\color{#E52D32}{†}}$ <a href="https://github.com/bigguykoi" style="color: #E52D32;">@𝐛𝐢𝐠𝐠𝐮𝐲𝐤𝐨𝐢</a> $\text{\color{#E52D32}{𝐢𝐬} \color{#D92A30}{𝐊𝐧𝐨𝐱} \color{#CC252F}{𝐄𝐯𝐞𝐧𝐭'}\color{#BA2530}{𝐬} \color{#A92330}{𝐓𝐨𝐧𝐲} \color{#941F30}{𝐒𝐭𝐚𝐫𝐤!} \color{#791D32}{[𝐌𝐚𝐫𝐯𝐞𝐥]}}$
 
@@ -496,17 +507,11 @@ $\text{\color{#51293d}{[𝐉𝐉𝐁𝐀: 𝐒𝐭𝐚𝐫𝐝𝐮𝐬𝐭 𝐂�
 
 $\text{\color{#95466D}{꒰ ✦ ꒱}}$ <a href="https://github.com/KayleighJudas" style="color: #95466D;">@𝐊𝐚𝐲𝐥𝐞𝐢𝐠𝐡𝐉𝐮𝐝𝐚𝐬</a> $\text{\color{#95466D}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐕𝐢𝐤𝐭𝐨𝐫! [𝐀𝐫𝐜𝐚𝐧𝐞]}}$
 
-$\text{\color{#f80202}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jsschlatt" style="color: #B5C900;">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭! [𝐌𝐂𝐘𝐓]}}$
-
 $\text{\color{#ffb7ce}{†}}$ <a href="https://github.com/RadiantCity" style="color: #ffb7ce;">@𝐑𝐚𝐝𝐢𝐚𝐧𝐭𝐂𝐢𝐭𝐲</a> $\text{\color{#ffb7ce}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐪𝐢𝐞! [𝐈𝐧𝐬𝐨𝐦𝐧𝐢𝐚𝐜𝐤𝐬]}}$
-
-$\text{\color{#f80202}{꒰ 🪓 ꒱}}$ <a href="https://github.com/sharpfrostcherv" style="color: #B5C900;">@𝐬𝐡𝐚𝐫𝐩𝐟𝐫𝐨𝐬𝐭𝐜𝐡𝐞𝐫𝐯</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐯𝐚𝐧! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]}}$
 
 $\text{\color{#9B4935}{꒰❄๋࣭ 𝐆𝐞𝐧𝐞𝐫𝐚𝐥} \color{#A6533B}{𝐖𝐢𝐧𝐭𝐞𝐫} \color{#B36A48}{☕⭑꒱}}$ <a href="https://github.com/witchinghourx" style="color: #854638;">@𝐰𝐢𝐭𝐜𝐡𝐢𝐧𝐠𝐡𝐨𝐮𝐫𝐱</a> $\text{\color{#A6533B}{𝐢𝐬} \color{#9B4935}{𝐊𝐧𝐨𝐱} \color{#914333}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#873D36}{𝐑𝐢𝐜𝐡𝐞𝐡!} \color{#783536}{[𝐖𝐢𝐭𝐜𝐡} \color{#692F35}{𝐇𝐚𝐭} \color{#592A32}{𝐀𝐭𝐞𝐥𝐢𝐞𝐫]}}$
 
 $\text{\color{#6cc0f5}{˵¬ᴗ¬˵}}$ <a href="https://github.com/9i71" style="color: #6cc0f5;">@𝟗𝐢𝟕𝟏</a> $\text{\color{#6cc0f5}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐞𝐛𝐞𝐜𝐜𝐚! [𝐌𝐮𝐫𝐝𝐞𝐫 𝐃𝐫𝐨𝐧𝐞𝐬]}}$
-
-$\text{\color{#f80202}{†}}$ <a href="https://github.com/cherrip1e" style="color: #B5C900;">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> $\text{\color{#f80202}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]}}$
 
 $\text{\color{#880808}{†}}$ <a href="https://github.com/demonbell3" style="color: #880808;">@𝐝𝐞𝐦𝐨𝐧𝐛𝐞𝐥𝐥𝟑</a> $\text{\color{#880808}{𝐢𝐬} \color{#9D130D}{𝐊𝐧𝐨𝐱} \color{#B21F13}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#C72B19}{𝐑𝐚𝐜𝐡𝐞𝐥} \color{#DC381F}{𝐀𝐦𝐛𝐞𝐫!} \color{#EE4B2B}{[𝐋𝐢𝐟𝐞 𝐈𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]}}$
 
