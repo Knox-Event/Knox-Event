@@ -12,7 +12,7 @@
 
 Knox Event Update Log: <br>
 
-November 1&th. <br>
+November 18th. <br>
 
 ![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) hello!! We're now open and accepting ur noms along with few of ur REQs:3.
 
