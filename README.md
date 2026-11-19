@@ -498,7 +498,7 @@ $\text{\color{#8B0000}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jss
 
 † <a href="https://github.com/cherrip1e">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]
 
-$\text{\color{#c7b360}{†}}$ <a href="https://github.com/mydigitalescape">@𝐦𝐲𝐝𝐢𝐠𝐢𝐭𝐚𝐥𝐞𝐬𝐜𝐚𝐩𝐞</a>$\text{\color{#c7b360}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#c7b360}{𝐑𝐨𝐦𝐞𝐨 𝐌𝐨𝐧𝐭𝐚𝐠𝐮𝐞! [𝐑𝐨𝐦𝐞𝐨 𝐀𝐧𝐝 𝐉𝐮𝐥𝐢𝐞𝐭]}}$
+$\text{\color{#c7b360}{†}}$ <a href="https://github.com/mydigitalescape">@𝐦𝐲𝐝𝐢𝐠𝐢𝐭𝐚𝐥𝐞𝐬𝐜𝐚𝐩𝐞</a> $\text{\color{#c7b360}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#c7b360}{𝐑𝐨𝐦𝐞𝐨 𝐌𝐨𝐧𝐭𝐚𝐠𝐮𝐞! [𝐑𝐨𝐦𝐞𝐨 𝐀𝐧𝐝 𝐉𝐮𝐥𝐢𝐞𝐭]}}$
 
 $\text{\color{#ab831f}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #ab831f;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#ab831f}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
 $\text{\color{#25ba8d}{𝐀𝐧𝐝 𝐈𝐭𝐨𝐬𝐡𝐢}}$ $\text{\color{#17786d}{𝐑𝐢𝐧! [𝐁𝐥𝐮𝐞}}$
