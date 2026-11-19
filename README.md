@@ -204,7 +204,7 @@ $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: �
 
 ✮ <a href="https://github.com/Supreme-Angel">@𝐒𝐮𝐩𝐫𝐞𝐦𝐞-𝐀𝐧𝐠𝐞𝐥</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐚𝐛𝐫𝐢𝐞𝐥! [𝐔𝐋𝐓𝐑𝐀𝐊𝐈𝐋𝐋]
 
-$\text{\color{#ff0000}{✮}}$ <a href="https://github.com/suguruberry"></a>$\text{\color{#ff0000}{@𝐬𝐮𝐠𝐮𝐫𝐮𝐛𝐞𝐫𝐫𝐲}}$ $\text{\color{#ff0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#ff0000}{𝐁𝐚}\color{#ff4000}{𝐫𝐫𝐲}\color{#ff8000}{ 𝐀𝐥𝐥𝐞𝐧! [𝐃𝐂]}}$
+$\text{\color{#ff0000}{✮}}$ <a href="https://github.com/suguruberry">@𝐬𝐮𝐠𝐮𝐫𝐮𝐛𝐞𝐫𝐫𝐲</a> $\text{\color{#ff0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#ff0000}{𝐁𝐚}\color{#ff4000}{𝐫𝐫𝐲}\color{#ff8000}{ 𝐀𝐥𝐥𝐞𝐧! [𝐃𝐂]}}$
 
 ✮ <a href="https://github.com/nereherrman">@𝐧𝐞𝐫𝐞𝐡𝐞𝐫𝐫𝐦𝐚𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐞𝐠𝐨𝐫! [𝐋𝐢𝐦𝐛𝐮𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲]
 
