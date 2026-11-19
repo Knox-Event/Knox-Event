@@ -492,7 +492,7 @@ U ´꓃ ` U <a href="https://github.com/hoobae">@𝐡𝐨𝐨𝐛𝐚𝐞</a> �
 
 ♡ <a href="https://github.com/danznc">@𝐝𝐚𝐧𝐳𝐧𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]
 
-﹙⇀‸↼‶﹚🚬 <a href="https://github.com/jsschlatt">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭! [𝐌𝐂𝐘𝐓]
+$\text{\color{#8B0000}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jsschlatt">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> $\text{\color{#8B0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#8B0000}{𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭!}}$ $\text{\color{#8B0000}{[𝐌𝐂𝐘𝐓]}}$
 
 ꒰ 🪓 ꒱ <a href="https://github.com/sharpfrostcherv">@𝐬𝐡𝐚𝐫𝐩𝐟𝐫𝐨𝐬𝐭𝐜𝐡𝐞𝐫𝐯</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐯𝐚𝐧! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
 
