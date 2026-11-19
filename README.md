@@ -190,6 +190,8 @@ $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: �
 
 ✮ <a href="https://github.com/kittyypop">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]
 
+✮ <a href="https://github.com/mortisfication">@𝐦𝐨𝐫𝐭𝐢𝐬𝐟𝐢𝐜𝐚𝐭𝐢𝐨𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐫𝐢𝐬 𝐑𝐞𝐝𝐟𝐢𝐞𝐥𝐝! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]
+
 ✮ <a href="https://github.com/eversleeping-town">@𝐞𝐯𝐞𝐫𝐬𝐥𝐞𝐞𝐩𝐢𝐧𝐠-𝐭𝐨𝐰𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐝𝐚 𝐖𝐨𝐧𝐠! [𝐑𝐞𝐬𝐢𝐝𝐞𝐧𝐭 𝐄𝐯𝐢𝐥]
 
 ✮ <a href="https://github.com/2099s">@𝟐𝟎𝟗𝟗𝐬</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐠𝐮𝐞𝐥 𝐎'𝐇𝐚𝐫𝐚! [𝐀𝐓𝐒𝐕/𝐌𝐚𝐫𝐯𝐞𝐥 𝐂𝐨𝐦𝐢𝐜]
@@ -202,7 +204,11 @@ $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: �
 
 ✮ <a href="https://github.com/Supreme-Angel">@𝐒𝐮𝐩𝐫𝐞𝐦𝐞-𝐀𝐧𝐠𝐞𝐥</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐚𝐛𝐫𝐢𝐞𝐥! [𝐔𝐋𝐓𝐑𝐀𝐊𝐈𝐋𝐋]
 
+$\text{\color{#ff0000}{✮}}$ <a href="https://github.com/suguruberry">\color{#ff0000}{@𝐬𝐮𝐠𝐮𝐫𝐮𝐛𝐞𝐫𝐫𝐲}</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 $\text{\color{#ff0000}{𝐁𝐚}\color{#ff4000}{𝐫𝐫𝐲}\color{#ff8000}{ 𝐀𝐥𝐥𝐞𝐧}}$! [𝐃𝐂]
+
 ✮ <a href="https://github.com/nereherrman">@𝐧𝐞𝐫𝐞𝐡𝐞𝐫𝐫𝐦𝐚𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐞𝐠𝐨𝐫! [𝐋𝐢𝐦𝐛𝐮𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲]
+
+$\text{\color{#7CFC00}{✮}}$ <a href="https://github.com/str4wb3rrym00nzz">@\color{#7CFC00}{𝐬𝐭𝐫𝟒𝐰𝐛𝟑𝐫𝐫𝐲𝐦𝟎𝟎𝐧𝐳𝐳}</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 \color{#7CFC00}{𝐒𝐩𝐫𝐨𝐮𝐭 𝐒𝐞𝐞𝐝𝐥𝐲}! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]
 
 $\text{\color{#FFB6D9}{♡}}$ <a href="https://github.com/polusoutpost" style="color: #FF8FC8;">@𝐩𝐨𝐥𝐮𝐬𝐨𝐮𝐭𝐩𝐨𝐬𝐭</a> $\text{\color{#FF8FC8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#F06BAE}{𝐏𝐢𝐧𝐤!} \color{#D94B91}{[𝐕𝐬. 𝐈𝐦𝐩𝐨𝐬𝐭𝐨𝐫 • 𝐅𝐍𝐅 𝐌𝐨𝐝]}}$ <br>
 $\text{\color{#FFB6D9}{𝐀𝐧𝐝 𝐏𝐞𝐫𝐟𝐞𝐜𝐭 𝐁𝐫𝐚𝐧𝐝𝐞𝐝 𝐄𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞𝐬} \color{#F06BAE}{♪ 𝐁𝐲} \color{#D94B91}{𝐍𝐞𝐫𝐨'𝐬 𝐃𝐚𝐲 𝐚𝐭 𝐃𝐢𝐬𝐧𝐞𝐲𝐥𝐚𝐧𝐝}}$
@@ -338,6 +344,8 @@ $\text{\color{#482c56}{꒰ ✦ ꒱}}$ <a href="https://github.com/UNLEASH-NOLI" 
 $\text{\color{#00d2be}{꒰ 🍝🏁 ꒱}}$ <a href="https://github.com/AntoneIIi" style="color: #00d2be;">@𝐀𝐧𝐭𝐨𝐧𝐞𝐈𝐈𝐢</a> $\text{\color{#00d2be}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐢𝐦𝐢 𝐀𝐧𝐭𝐨𝐧𝐞𝐥𝐥𝐢!}}$
 
 $\text{\color{#8050A8}{☣}}$ <a href="https://github.com/crazybloxer" style="color: #8050A8;">@𝐜𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱𝐞𝐫</a> $\text{\color{#8050A8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱! [𝐅𝐥𝐨𝐨𝐝 𝐄𝐬𝐜𝐚𝐩𝐞 𝟐]}}$
+
+$\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">\color{#ffb7ce}{@𝐬𝐞𝐱𝐭𝐚𝐩𝐢𝐧𝐠}</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 \color{#ffb7ce}{𝐉𝐨𝐞𝐲 𝐉𝐨𝐫𝐝𝐢𝐬𝐨𝐧}! [𝐒𝐥𝐢𝐩𝐤𝐧𝐨𝐭]
 
 ☣ <a href="https://github.com/livingforest">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚! <br>
 [𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰] <br>
@@ -489,6 +497,8 @@ U ´꓃ ` U <a href="https://github.com/hoobae">@𝐡𝐨𝐨𝐛𝐚𝐞</a> �
 ꒰ 🪓 ꒱ <a href="https://github.com/sharpfrostcherv">@𝐬𝐡𝐚𝐫𝐩𝐟𝐫𝐨𝐬𝐭𝐜𝐡𝐞𝐫𝐯</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐯𝐚𝐧! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
 
 † <a href="https://github.com/cherrip1e">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]
+
+$\text{\color{#c7b360}{†}}$ <a href="https://github.com/mydigitalescape">@\color{#c7b360}{𝐦𝐲𝐝𝐢𝐠𝐢𝐭𝐚𝐥𝐞𝐬𝐜𝐚𝐩𝐞}</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 \color{#c7b360}{𝐑𝐨𝐦𝐞𝐨 𝐌𝐨𝐧𝐭𝐚𝐠𝐮𝐞}! [𝐑𝐨𝐦𝐞𝐨 𝐀𝐧𝐝 𝐉𝐮𝐥𝐢𝐞𝐭]
 
 $\text{\color{#ab831f}{†}}$ <a href="https://github.com/KALININGRAD-OBLAST" style="color: #ab831f;">@𝐊𝐀𝐋𝐈𝐍𝐈𝐍𝐆𝐑𝐀𝐃-𝐎𝐁𝐋𝐀𝐒𝐓</a> $\text{\color{#ab831f}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐃𝐚𝐫𝐤 𝐀𝐩𝐨𝐬𝐭𝐥𝐞 𝐘𝐨𝐡𝐚𝐧 [𝐘𝐮-𝐠𝐢-𝐨𝐡! 𝐆𝐗]}}$
 $\text{\color{#25ba8d}{𝐀𝐧𝐝 𝐈𝐭𝐨𝐬𝐡𝐢}}$ $\text{\color{#17786d}{𝐑𝐢𝐧! [𝐁𝐥𝐮𝐞}}$
