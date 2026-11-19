@@ -345,7 +345,7 @@ $\text{\color{#00d2be}{꒰ 🍝🏁 ꒱}}$ <a href="https://github.com/AntoneIIi
 
 $\text{\color{#8050A8}{☣}}$ <a href="https://github.com/crazybloxer" style="color: #8050A8;">@𝐜𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱𝐞𝐫</a> $\text{\color{#8050A8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐫𝐚𝐳𝐲𝐛𝐥𝐨𝐱! [𝐅𝐥𝐨𝐨𝐝 𝐄𝐬𝐜𝐚𝐩𝐞 𝟐]}}$
 
-$\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">@𝐬𝐞𝐱𝐭𝐚𝐩𝐢𝐧𝐠</a>$\text{\color{#ffb7ce}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#ffb7ce}{𝐉𝐨𝐞𝐲 𝐉𝐨𝐫𝐝𝐢𝐬𝐨𝐧! [𝐒𝐥𝐢𝐩𝐤𝐧𝐨𝐭]}}$
+$\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">@𝐬𝐞𝐱𝐭𝐚𝐩𝐢𝐧𝐠</a> $\text{\color{#ffb7ce}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#ffb7ce}{𝐉𝐨𝐞𝐲 𝐉𝐨𝐫𝐝𝐢𝐬𝐨𝐧! [𝐒𝐥𝐢𝐩𝐤𝐧𝐨𝐭]}}$
 
 ☣ <a href="https://github.com/livingforest">@𝐥𝐢𝐯𝐢𝐧𝐠𝐟𝐨𝐫𝐞𝐬𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐑𝐚𝐥𝐬𝐞𝐢! [𝐃𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] + 𝐇𝐢𝐥𝐝𝐚! <br>
 [𝐇𝐢𝐥𝐝𝐚 𝐒𝐡𝐨𝐰] <br>
