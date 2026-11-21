@@ -387,7 +387,7 @@ $\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">@𝐬𝐞�
 ꒰ 🍀 ꒱ <a href="https://github.com/futuristic-maniac">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]
 
 $\text{\color{#66FFFF}{𐔌՞꜆. ̫.꜀՞𐦯}}$ <a href="https://github.com/G0reology">@𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 $\text{\color{#66FFFF}{𝐓𝐬𝐮𝐠𝐢𝐧𝐨}\color{#A5F3FC}{ 𝐇𝐚𝐫𝐮!}}$! $\text{\color{#66FFFF}{[𝐙𝐞𝐧𝐨}\color{#A5F3FC}{ 𝐑𝐞𝐦𝐚𝐤𝐞]}}$ <br>
-$\text{\color{#66FFFF}{𝐖𝐞𝐚𝐩𝐨𝐧:}\color{#A5F3FC}{ 𝐏𝐞𝐫𝐜𝐮𝐬𝐬𝐢𝐨𝐧-𝐥𝐨𝐜𝐤 𝐑𝐢𝐟𝐥𝐞𝐝 𝐌𝐮𝐬𝐤𝐞!𝐭}}$ <br>
+$\text{\color{#66FFFF}{𝐖𝐞𝐚𝐩𝐨𝐧:}\color{#A5F3FC}{ 𝐏𝐞𝐫𝐜𝐮𝐬𝐬𝐢𝐨𝐧-𝐥𝐨𝐜𝐤 𝐑𝐢𝐟𝐥𝐞𝐝 𝐌𝐮𝐬𝐤𝐞𝐭!}}$ <br>
 $\text{\color{#66FFFF}{𝐀𝐧𝐝 𝐓𝐡𝐞 𝐌𝐮𝐬𝐢𝐜 ♪}\color{#7ddffb}{ 𝐒𝐰𝐞𝐞𝐭 𝐒𝐚𝐜𝐫𝐢𝐟𝐢𝐜𝐞 }\color{#A5F3FC}{𝐛𝐲 𝐄𝐯𝐚𝐧𝐞𝐬𝐜𝐞𝐧𝐜𝐞!}}$
 
 $\text{\color{#D93636}{☣}}$ <a href="https://github.com/TONEEDEAFF" style="color: #D93636;">@𝐓𝐎𝐍𝐄𝐄𝐃𝐄𝐀𝐅𝐅</a> $\text{\color{#D93636}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#FFFFFF}{𝐑𝐞𝐚𝐩𝐞𝐫!} \color{#D93636}{[𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
