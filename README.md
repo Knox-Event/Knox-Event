@@ -186,7 +186,7 @@ $\text{\color{#df5b3b}{[𝐅𝐍𝐅 𝐂𝐨𝐫𝐫𝐮𝐩𝐭𝐢𝐨𝐧] �
 $\text{\color{#df5b3b}{𝐛𝐲 𝐒𝐚𝐬𝐭𝐞𝐫 𝐌𝐮𝐬𝐢𝐜!}}$ <br>
 $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: 𝐀 𝐆𝐮𝐧}}$
 
-$\text{\color{#666666}{✮}}$ <a href="https://github.com/xoxo1ia">@𝐱𝐨𝐱𝐨𝟏𝐢𝐚</a> $\text{\color{#666666}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#666666}{𝐓𝐡𝐞 𝐊𝐧𝐨𝐜𝐤𝐞𝐫!}}$! $\text{\color{#777777}{[𝐌𝐢𝐧𝐞𝐜𝐫𝐚𝐟𝐭}} \text{\color{#aaaaaa}{𝐇𝐨𝐫𝐫𝐨𝐫]}}$
+$\text{\color{#555555}{✮}}$ <a href="https://github.com/xoxo1ia">@𝐱𝐨𝐱𝐨𝟏𝐢𝐚</a> $\text{\color{#555555}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#555555}{𝐓𝐡𝐞 𝐊𝐧𝐨𝐜𝐤𝐞𝐫!}}$ $\text{\color{#666666}{[𝐌𝐢𝐧𝐞𝐜𝐫𝐚𝐟𝐭}} \text{\color{#999999}{ 𝐇𝐨𝐫𝐫𝐨𝐫]}}$
 
 ✮ <a href="https://github.com/mydearmeIancholy">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]
 
