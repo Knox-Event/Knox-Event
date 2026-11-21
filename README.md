@@ -505,7 +505,7 @@ $\text{\color{#8B0000}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jss
 † <a href="https://github.com/cherrip1e">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]
 
 $\text{\color{#b48561}{𓏲𝄢}}$ <a href="https://github.com/felixylixywoah">@𝐟𝐞𝐥𝐢𝐱𝐲𝐥𝐢𝐱𝐲𝐰𝐨𝐚𝐡</a> $\text{\color{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#b48561}{𝐅𝐞𝐥𝐢𝐱!}}  \text{\color{#aa5b51}{ [𝐏𝐢𝐠𝐠𝐲 𝐑𝐨𝐛𝐥𝐨𝐱]}} \text{\color{#b48561}{🌹}}$ $\text{\color{#aa5b51}{𝐀𝐧𝐝}}$ <br>
-$\text{\color{#472f51}{☠︎︎ 𝐒𝐂𝐏-𝟎𝟑𝟓!}} \text{\color{#163240}{[𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}} \text{\color{#472f51}{🎭}}$!
+$\text{\color{#472f51}{☠︎︎ 𝐒𝐂𝐏-𝟎𝟑𝟓!}} \text{\color{#163240}{[𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}} \text{\color{#472f51}{🎭}}$
 
 $\text{\color{#eba834}{†}}$ <a href="https://github.com/NariTheMakoSh4rk">@𝐍𝐚𝐫𝐢𝐓𝐡𝐞𝐌𝐚𝐤𝐨𝐒𝐡𝟒𝐫𝐤</a> $\text{\color{#eba834}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#eba834}{𝐒𝐩}\color{#f5c15d}{𝐚𝐝𝐞}}$ $\text{\color{#eba834}{[𝐅𝐨𝐫}\color{#f5c15d}{𝐬𝐚𝐤𝐞𝐧]}}$
 
