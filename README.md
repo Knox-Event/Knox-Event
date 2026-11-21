@@ -186,6 +186,8 @@ $\text{\color{#df5b3b}{[𝐅𝐍𝐅 𝐂𝐨𝐫𝐫𝐮𝐩𝐭𝐢𝐨𝐧] �
 $\text{\color{#df5b3b}{𝐛𝐲 𝐒𝐚𝐬𝐭𝐞𝐫 𝐌𝐮𝐬𝐢𝐜!}}$ <br>
 $\text{\color{#df5b3b}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧: 𝐀 𝐆𝐮𝐧}}$
 
+$\text{\color{#666666}{✮}}$ <a href="https://github.com/xoxo1ia">@𝐱𝐨𝐱𝐨𝟏𝐢𝐚</a> $\text{\color{#666666}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#666666}{𝐓𝐡𝐞 𝐊𝐧𝐨𝐜𝐤𝐞𝐫!}}$! $\text{\color{#777777}{[𝐌𝐢𝐧𝐞𝐜𝐫𝐚𝐟𝐭}} \text{\color{#aaaaaa}{𝐇𝐨𝐫𝐫𝐨𝐫]}}$
+
 ✮ <a href="https://github.com/mydearmeIancholy">@𝐦𝐲𝐝𝐞𝐚𝐫𝐦𝐞𝐈𝐚𝐧𝐜𝐡𝐨𝐥𝐲</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐰𝐞𝐫 ! [𝐂𝐡𝐚𝐢𝐧𝐬𝐚𝐰 𝐌𝐚𝐧]
 
 ✮ <a href="https://github.com/kittyypop">@𝐤𝐢𝐭𝐭𝐲𝐲𝐩𝐨𝐩</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐄𝐮𝐧𝐨𝐢𝐚! [𝐅𝐫𝐨𝐳𝐞𝐧 𝐒𝐨𝐮𝐥/𝐃𝐫𝐞𝐚𝐦 𝐆𝐚𝐦𝐞]
@@ -384,6 +386,10 @@ $\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">@𝐬𝐞�
 
 ꒰ 🍀 ꒱ <a href="https://github.com/futuristic-maniac">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]
 
+$\text{\color{#66FFFF}{𐔌՞꜆. ̫.꜀՞𐦯}}$ <a href="https://github.com/G0reology">@𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 $\text{\color{#66FFFF}{𝐓𝐬𝐮𝐠𝐢𝐧𝐨}\color{#A5F3FC}{ 𝐇𝐚𝐫𝐮!}}$! $\text{\color{#66FFFF}{[𝐙𝐞𝐧𝐨}\color{#A5F3FC}{ 𝐑𝐞𝐦𝐚𝐤𝐞]}}$ <br>
+$\text{\color{#66FFFF}{𝐖𝐞𝐚𝐩𝐨𝐧:}\color{#A5F3FC}{ 𝐏𝐞𝐫𝐜𝐮𝐬𝐬𝐢𝐨𝐧-𝐥𝐨𝐜𝐤 𝐑𝐢𝐟𝐥𝐞𝐝 𝐌𝐮𝐬𝐤𝐞!𝐭}}$ <br>
+$\text{\color{#66FFFF}{𝐀𝐧𝐝 𝐓𝐡𝐞 𝐌𝐮𝐬𝐢𝐜 ♪}\color{#7ddffb}{ 𝐒𝐰𝐞𝐞𝐭 𝐒𝐚𝐜𝐫𝐢𝐟𝐢𝐜𝐞 }\color{#A5F3FC}{𝐛𝐲 𝐄𝐯𝐚𝐧𝐞𝐬𝐜𝐞𝐧𝐜𝐞!}}$
+
 $\text{\color{#D93636}{☣}}$ <a href="https://github.com/TONEEDEAFF" style="color: #D93636;">@𝐓𝐎𝐍𝐄𝐄𝐃𝐄𝐀𝐅𝐅</a> $\text{\color{#D93636}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#FFFFFF}{𝐑𝐞𝐚𝐩𝐞𝐫!} \color{#D93636}{[𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡]}}$
 
 $\text{\color{#7654A8}{☯}}$ <a href="https://github.com/wifiesh">@𝐰𝐢𝐟𝐢𝐞𝐬𝐡</a> $\text{\color{#7654A8}{𝐢𝐬} \color{#8059A9}{𝐊𝐧𝐨𝐱} \color{#895FAB}{𝐄𝐯𝐞𝐧𝐭'}\color{#9163AC}{𝐬} \color{#9964AA}{𝐖𝐢𝐟𝐢𝐞𝐬} \color{#9E65A7}{𝐀𝐧𝐝} \color{#A064A4}{𝐏𝐚𝐫𝐫𝐨𝐭𝐱𝟐!} \color{#965B9D}{[𝐔𝐔𝐒𝐌𝐏]}}$
@@ -497,6 +503,11 @@ $\text{\color{#8B0000}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jss
 ꒰ 🪓 ꒱ <a href="https://github.com/sharpfrostcherv">@𝐬𝐡𝐚𝐫𝐩𝐟𝐫𝐨𝐬𝐭𝐜𝐡𝐞𝐫𝐯</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐯𝐚𝐧! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
 
 † <a href="https://github.com/cherrip1e">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]
+
+$\text{\color{#b48561}{𓏲𝄢}}$ <a href="https://github.com/felixylixywoah">@𝐟𝐞𝐥𝐢𝐱𝐲𝐥𝐢𝐱𝐲𝐰𝐨𝐚𝐡</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 $\text{\color{#b48561}{𝐅𝐞𝐥𝐢𝐱!}} \text{\color{#aa5b51}{[𝐏𝐢𝐠𝐠𝐲 𝐑𝐨𝐛𝐥𝐨𝐱]}} \text{\color{#b48561}{🌹}}$ $\text{\color{#aa5b51}{𝐀𝐧𝐝}}$ <br>
+$\text{\color{#472f51}{☠︎︎ 𝐒𝐂𝐏-𝟎𝟑𝟓!}} \text{\color{#163240}{[𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}} \text{\color{#472f51}{🎭}}$!
+
+$\text{\color{#eba834}{†}}$ <a href="https://github.com/NariTheMakoSh4rk">@𝐍𝐚𝐫𝐢𝐓𝐡𝐞𝐌𝐚𝐤𝐨𝐒𝐡𝟒𝐫𝐤</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 $\text{\color{#eba834}{𝐒𝐩}\color{#f5c15d}{𝐚𝐝𝐞}}$! $\text{\color{#eba834}{[𝐅𝐨𝐫}\color{#f5c15d}{𝐬𝐚𝐤𝐞𝐧]}}$
 
 $\text{\color{#c7b360}{†}}$ <a href="https://github.com/mydigitalescape">@𝐦𝐲𝐝𝐢𝐠𝐢𝐭𝐚𝐥𝐞𝐬𝐜𝐚𝐩𝐞</a> $\text{\color{#c7b360}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#c7b360}{𝐑𝐨𝐦𝐞𝐨 𝐌𝐨𝐧𝐭𝐚𝐠𝐮𝐞! [𝐑𝐨𝐦𝐞𝐨 𝐀𝐧𝐝 𝐉𝐮𝐥𝐢𝐞𝐭]}}$
 
