@@ -12,11 +12,14 @@
 
 Knox Event Update Log: <br>
 
-November 18th. <br>
+November 25th. <br>
 
 ![](https://gloomy-poison.neocities.org/scene_graphics/pinkandblackskullfavicon.gif) hello!! We're now open and accepting ur noms along with few of ur REQs:3.
 
 - if you havent noticed, We removed the default colors for each categories to preserve that github code format error if you remembered, you **can** still request for your own **color[s]/gradient** in only **minimum of 2**!
+
+- *We're busy* with exams **this week**, so We won't immediately update the nom list pretty quickly! Thx for your patience. ⊂⁠(⁠◉⁠‿⁠◉⁠)⁠つ
+  - We will be *updating* during **weekends**!
 
 — hwobae <br>
 
