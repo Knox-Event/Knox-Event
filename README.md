@@ -224,7 +224,7 @@ $\text{\color{#ff0000}{✮}}$ <a href="https://github.com/suguruberry">@𝐬𝐮
 
 $\text{\color{#3979D8}{✮}}$ <a href="https://github.com/solomonsassistant" style="color: #A9D5F5;">@𝐬𝐨𝐥𝐨𝐦𝐨𝐧𝐬𝐚𝐬𝐬𝐢𝐬𝐭𝐚𝐧𝐭</a> $\text{\color{#3979D8}{𝐢𝐬}}$ $\text{\color{#78B5E8}{𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐨𝐥𝐨𝐦𝐨𝐧!}}$ $\text{\color{#DCEEFF}{[𝐎𝐛𝐞𝐲 𝐌𝐞]}}$
 
-$\text{\color{#C62845}{₍^. .^₎Ⳋ}}$ <a href="https://github.com/kyutbie" style="color: #F28BA8;">@𝐤𝐲𝐮𝐭𝐛𝐢𝐞</a> $\text{\color{#D93661}{𝐢𝐬}}$ $\text{\color{#E85D83}{𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#F28BA8}{𝐑𝐢𝐝𝐝𝐥𝐞 𝐑𝐨𝐬𝐞𝐡𝐞𝐚𝐫𝐭𝐬!}}$ $\text{\color{#C62845}{[𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐖𝐨𝐧𝐝𝐞𝐫𝐥𝐚𝐧𝐝]}}$
+$\text{\color{#C62845}{₍ᵔ. .ᵔ₎Ⳋ}}$ <a href="https://github.com/kyutbie" style="color: #F28BA8;">@𝐤𝐲𝐮𝐭𝐛𝐢𝐞</a> $\text{\color{#D93661}{𝐢𝐬}}$ $\text{\color{#E85D83}{𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#F28BA8}{𝐑𝐢𝐝𝐝𝐥𝐞 𝐑𝐨𝐬𝐞𝐡𝐞𝐚𝐫𝐭𝐬!}}$ $\text{\color{#C62845}{[𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐖𝐨𝐧𝐝𝐞𝐫𝐥𝐚𝐧𝐝]}}$
 
 $\text{\color{#7CFC00}{✮}}$ <a href="https://github.com/str4wb3rrym00nzz">@𝐬𝐭𝐫𝟒𝐰𝐛𝟑𝐫𝐫𝐲𝐦𝟎𝟎𝐧𝐳𝐳</a> $\text{\color{#7CFC00}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#7CFC00}{𝐒𝐩𝐫𝐨𝐮𝐭 𝐒𝐞𝐞𝐝𝐥𝐲! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
