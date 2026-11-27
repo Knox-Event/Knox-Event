@@ -209,14 +209,27 @@ $\text{\color{#555555}{✮}}$ <a href="https://github.com/xoxo1ia">@𝐱𝐨𝐱
 
 ✮ <a href="https://github.com/Supreme-Angel">@𝐒𝐮𝐩𝐫𝐞𝐦𝐞-𝐀𝐧𝐠𝐞𝐥</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐚𝐛𝐫𝐢𝐞𝐥! [𝐔𝐋𝐓𝐑𝐀𝐊𝐈𝐋𝐋]
 
+✮ <a href="https://github.com/nereherrman">@𝐧𝐞𝐫𝐞𝐡𝐞𝐫𝐫𝐦𝐚𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐞𝐠𝐨𝐫! [𝐋𝐢𝐦𝐛𝐮𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲]
+
+$\text{\color{#3979D8}{✮}}$ <a href="https://github.com/theresonatingpulse" style="color: #A9D5F5;">@𝐭𝐡𝐞𝐫𝐞𝐬𝐨𝐧𝐚𝐭𝐢𝐧𝐠𝐩𝐮𝐥𝐬𝐞</a> $\text{\color{#3979D8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#78B5E8}{𝐂𝐨𝐨𝐥𝐞𝐫 𝐁𝐨𝐨𝐦𝐛𝐨𝐱}}$ $\text{\color{#DCEEFF}{! [𝐏𝐇𝐈𝐆𝐇𝐓𝐈𝐍𝐆!]}}$
+
+$\text{\color{#B22222}{[┐∵]┘}}$ <a href="https://github.com/ultronirl" style="color: #B22222;">@𝐮𝐥𝐭𝐫𝐨𝐧𝐢𝐫𝐥</a> $\text{\color{#B22222}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐔𝐥𝐭𝐫𝐨𝐧! [𝐌𝐚𝐫𝐯𝐞𝐥]}}$
+
+$\text{\color{#784c84}{﹙҂ × ཀ ×﹚}}$ <a href="https://github.com/mrfluix" style="color: #a5828f;">@𝐦𝐫𝐟𝐥𝐮𝐢𝐱</a> $\text{\color{#784c84}{𝐢𝐬}}$ $\text{\color{#784c84}{𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#a5828f}{𝐅𝐥𝐮𝐢𝐱𝐨𝐧 (𝐃𝐞𝐜𝐚𝐲𝐞𝐝 𝐚𝐧𝐝 𝐃𝐞𝐜𝐫𝐞𝐩𝐢𝐭 𝐕𝐞𝐫𝐬𝐢𝐨𝐧)!}}$ $\text{\color{#784c84}{[𝐌𝐂𝐘𝐓/𝐌𝐂𝐑𝐏/𝐃𝐚𝐃]}}$<br>
+$\text{\color{#784c84}{𝐀𝐧𝐝 ♪ 𝐒𝐢𝐠𝐧 𝐨𝐟 𝐭𝐡𝐞 𝐓𝐢𝐦𝐞𝐬! ♪ 𝐛𝐲 𝐇𝐚𝐫𝐫𝐲 𝐒𝐭𝐲𝐥𝐞𝐬}}$
+
+$\text{\color{#6e1717}{ᡕᠵデᡁ᠊╾━}}$ <a href="https://github.com/arghsenic" style="color: #6e1717;">@𝐚𝐫𝐠𝐡𝐬𝐞𝐧𝐢𝐜</a> $\text{\color{#6e1717}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐏𝐨𝐬𝐭𝐚𝐥 𝐃𝐮𝐝𝐞! [𝐏𝐨𝐬𝐭𝐚𝐥 𝟏𝟗𝟗𝟕]}}$
+
 $\text{\color{#ff0000}{✮}}$ <a href="https://github.com/suguruberry">@𝐬𝐮𝐠𝐮𝐫𝐮𝐛𝐞𝐫𝐫𝐲</a> $\text{\color{#ff0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#ff0000}{𝐁𝐚}\color{#ff4000}{𝐫𝐫𝐲}\color{#ff8000}{ 𝐀𝐥𝐥𝐞𝐧! [𝐃𝐂]}}$
 
-✮ <a href="https://github.com/nereherrman">@𝐧𝐞𝐫𝐞𝐡𝐞𝐫𝐫𝐦𝐚𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐞𝐠𝐨𝐫! [𝐋𝐢𝐦𝐛𝐮𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲]
+$\text{\color{#3979D8}{✮}}$ <a href="https://github.com/solomonsassistant" style="color: #A9D5F5;">@𝐬𝐨𝐥𝐨𝐦𝐨𝐧𝐬𝐚𝐬𝐬𝐢𝐬𝐭𝐚𝐧𝐭</a> $\text{\color{#3979D8}{𝐢𝐬}}$ $\text{\color{#78B5E8}{𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐨𝐥𝐨𝐦𝐨𝐧!}}$ $\text{\color{#DCEEFF}{[𝐎𝐛𝐞𝐲 𝐌𝐞]}}$
+
+$\text{\color{#C62845}{₍^. .^₎Ⳋ}}$ <a href="https://github.com/kyutbie" style="color: #F28BA8;">@𝐤𝐲𝐮𝐭𝐛𝐢𝐞</a> $\text{\color{#D93661}{𝐢𝐬}}$ $\text{\color{#E85D83}{𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#F28BA8}{𝐑𝐢𝐝𝐝𝐥𝐞 𝐑𝐨𝐬𝐞𝐡𝐞𝐚𝐫𝐭𝐬!}}$ $\text{\color{#C62845}{[𝐓𝐰𝐢𝐬𝐭𝐞𝐝 𝐖𝐨𝐧𝐝𝐞𝐫𝐥𝐚𝐧𝐝]}}$
 
 $\text{\color{#7CFC00}{✮}}$ <a href="https://github.com/str4wb3rrym00nzz">@𝐬𝐭𝐫𝟒𝐰𝐛𝟑𝐫𝐫𝐲𝐦𝟎𝟎𝐧𝐳𝐳</a> $\text{\color{#7CFC00}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#7CFC00}{𝐒𝐩𝐫𝐨𝐮𝐭 𝐒𝐞𝐞𝐝𝐥𝐲! [𝐃𝐚𝐧𝐝𝐲'𝐬 𝐖𝐨𝐫𝐥𝐝]}}$
 
-$\text{\color{#FFB6D9}{♡}}$ <a href="https://github.com/polusoutpost" style="color: #FF8FC8;">@𝐩𝐨𝐥𝐮𝐬𝐨𝐮𝐭𝐩𝐨𝐬𝐭</a> $\text{\color{#FF8FC8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#F06BAE}{𝐏𝐢𝐧𝐤!} \color{#D94B91}{[𝐕𝐬. 𝐈𝐦𝐩𝐨𝐬𝐭𝐨𝐫 • 𝐅𝐍𝐅 𝐌𝐨𝐝]}}$ <br>
-$\text{\color{#FFB6D9}{𝐀𝐧𝐝 𝐏𝐞𝐫𝐟𝐞𝐜𝐭 𝐁𝐫𝐚𝐧𝐝𝐞𝐝 𝐄𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞𝐬} \color{#F06BAE}{♪ 𝐁𝐲} \color{#D94B91}{𝐍𝐞𝐫𝐨'𝐬 𝐃𝐚𝐲 𝐚𝐭 𝐃𝐢𝐬𝐧𝐞𝐲𝐥𝐚𝐧𝐝}}$
+$\text{\color{#F29E30}{♡}}$ <a href="https://github.com/croistime" style="color: #F29E30;">@𝐜𝐫𝐨𝐢𝐬𝐭𝐢𝐦𝐞</a> $\text{\color{#F29E30}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐫𝐨𝐢𝐬𝐬𝐚𝐧𝐭 𝐂𝐨𝐨𝐤𝐢𝐞! [𝐂𝐨𝐨𝐤𝐢𝐞 𝐑𝐮𝐧]}}$<br>
+$\text{\color{#F29E30}{𝐀𝐧𝐝 ♪ 𝐏𝐞𝐫𝐟𝐞𝐜𝐭 𝐁𝐫𝐚𝐧𝐝𝐞𝐝 𝐄𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞𝐬! ♪ 𝐛𝐲 𝐍𝐞𝐫𝐨'𝐬 𝐃𝐚𝐲 𝐚𝐭 𝐃𝐢𝐬𝐧𝐞𝐲𝐥𝐚𝐧𝐝}}$
 
 ✮ <a href="https://github.com/screworangeslugs">@𝐬𝐜𝐫𝐞𝐰𝐨𝐫𝐚𝐧𝐠𝐞𝐬𝐥𝐮𝐠𝐬</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐞𝐰𝐛𝐢𝐞! <br> 
 [𝐇𝐨𝐨𝐩𝐬 𝐚𝐧𝐝 𝐘𝐨𝐲𝐨]
@@ -295,7 +308,6 @@ $\text{\color{#ACFF95}{[𝐏𝐨𝐤é𝐦𝐨𝐧]}}$
 $\text{\color{#625731}{✮}}$ <a href="https://github.com/iceoIated" style="color: #625731;">@𝐢𝐜𝐞𝐨𝐈𝐚𝐭𝐞𝐝</a> $\text{\color{#625731}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐬𝐡𝐥𝐲𝐧 𝐁𝐚𝐧𝐧𝐞𝐫!}}$ <br>
 $\text{\color{#625731}{[𝐒𝐜𝐡𝐨𝐨𝐥 𝐁𝐮𝐬 𝐆𝐫𝐚𝐯𝐞𝐲𝐚𝐫𝐝]}}$
 
-
 $\text{\color{#5C82A6}{꒰🩸꒱}}$ <a href="https://github.com/HerWordsKill" style="color: #5C82A6;">@𝐇𝐞𝐫𝐖𝐨𝐫𝐝𝐬𝐊𝐢𝐥𝐥</a> $\text{\color{#5C82A6}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐤𝐢𝐫𝐚! [𝐓𝐨𝐠𝐚𝐢𝐧𝐮 𝐍𝐨 𝐂𝐡𝐢]}}$
 
 $\text{\color{#38220A}{✮}}$ <a href="https://github.com/i-Zach" style="color: #38220A;">@𝐢-𝐙𝐚𝐜𝐡</a> $\text{\color{#38220A}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐨𝐰𝐛𝐨𝐲 𝟎𝟎𝟕𝐧𝟕!}}$
@@ -367,7 +379,6 @@ $\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">@𝐬𝐞�
 
 ☣ <a href="https://github.com/biteofme">@𝐛𝐢𝐭𝐞𝐨𝐟𝐦𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐂𝐡𝐥𝐨𝐞 𝐏𝐫𝐢𝐜𝐞! [𝐋𝐢𝐟𝐞 𝐢𝐬 𝐒𝐭𝐫𝐚𝐧𝐠𝐞]
 
-
 ☣ <a href="https://github.com/Ham-milton">@𝐇𝐚𝐦-𝐦𝐢𝐥𝐭𝐨𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐒𝐜𝐚𝐫𝐞𝐝 𝐅𝐫𝐞𝐧𝐜𝐡 𝐒𝐨𝐥𝐝𝐢𝐞𝐫! <br>
 [𝐆𝐮𝐭𝐬 𝐀𝐧𝐝 𝐁𝐥𝐚𝐜𝐤𝐩𝐨𝐰𝐝𝐞𝐫] <br>
 
@@ -388,6 +399,12 @@ $\text{\color{#ffb7ce}{☣}}$ <a href="https://github.com/sextaping">@𝐬𝐞�
 ☣ <a href="https://github.com/PlanticNurii">@𝐏𝐥𝐚𝐧𝐭𝐢𝐜𝐍𝐮𝐫𝐢𝐢</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐧𝐝𝐫𝐞𝐰! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
 
 ꒰ 🍀 ꒱ <a href="https://github.com/futuristic-maniac">@𝐟𝐮𝐭𝐮𝐫𝐢𝐬𝐭𝐢𝐜-𝐦𝐚𝐧𝐢𝐚𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐍𝐚𝐠𝐢𝐭𝐨 𝐊𝐨𝐦𝐚𝐞𝐝𝐚! [𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚]
+
+$\text{\color{#5489D6}{☣}}$ <a href="https://github.com/saezushi" style="color: #9874C9;">@𝐬𝐚𝐞𝐳𝐮𝐬𝐡𝐢</a> $\text{\color{#5489D6}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#9874C9}{𝐖𝐚𝐧𝐝𝐞𝐫𝐞𝐫! [𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
+
+$\text{\color{#C25BE3}{☣}}$ <a href="https://github.com/beealzebub" style="color: #C25BE3;">@𝐛𝐞𝐞𝐚𝐥𝐳𝐞𝐛𝐮𝐛</a> $\text{\color{#C25BE3}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐀𝐥𝐥𝐢 𝐭𝐡𝐞 𝐀𝐥𝐥𝐢𝐠𝐚𝐭𝐨𝐫! [𝐁𝐫𝐚𝐰𝐥 𝐒𝐭𝐚𝐫𝐬]}}$
+
+$\text{\color{#A7ADB5}{꒰🐢꒱}}$ <a href="https://github.com/kiwiconiccc" style="color: #B9D4E8;">@𝐤𝐢𝐰𝐢𝐜𝐨𝐧𝐢𝐜𝐜𝐜</a> $\text{\color{#A7ADB5}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#B9D4E8}{𝐉𝐞𝐚𝐧 𝐏𝐢𝐞𝐫𝐫𝐞 𝐏𝐨𝐥𝐧𝐚𝐫𝐞𝐟𝐟!}}$ $\text{\color{#DCEAF2}{[𝐉𝐨𝐉𝐨'𝐬 𝐁𝐢𝐳𝐚𝐫𝐫𝐞 𝐀𝐝𝐯𝐞𝐧𝐭𝐮𝐫𝐞]}}$
 
 $\text{\color{#66FFFF}{𐔌՞꜆. ̫.꜀՞𐦯}}$ <a href="https://github.com/G0reology">@𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲</a> $\text{\color{#66FFFF}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#66FFFF}{𝐓𝐬𝐮𝐠𝐢𝐧𝐨}\color{#A5F3FC}{ 𝐇𝐚𝐫𝐮!}}$ $\text{\color{#66FFFF}{[𝐙𝐞𝐧𝐨}\color{#A5F3FC}{ 𝐑𝐞𝐦𝐚𝐤𝐞]}}$ <br>
 $\text{\color{#66FFFF}{𝐖𝐞𝐚𝐩𝐨𝐧:}\color{#A5F3FC}{ 𝐏𝐞𝐫𝐜𝐮𝐬𝐬𝐢𝐨𝐧-𝐥𝐨𝐜𝐤 𝐑𝐢𝐟𝐥𝐞𝐝 𝐌𝐮𝐬𝐤𝐞𝐭!}}$ <br>
@@ -501,11 +518,18 @@ U ´꓃ ` U <a href="https://github.com/hoobae">@𝐡𝐨𝐨𝐛𝐚𝐞</a> �
 
 ♡ <a href="https://github.com/danznc">@𝐝𝐚𝐧𝐳𝐧𝐜</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐫𝐚𝐯𝐢𝐬! [𝐓𝐡𝐞 𝐌𝐨𝐨𝐧 𝐈 𝐑𝐨𝐭 𝐁𝐞𝐡𝐢𝐧𝐝]
 
-$\text{\color{#8B0000}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jsschlatt">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> $\text{\color{#8B0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#8B0000}{𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭!}}$ $\text{\color{#8B0000}{[𝐌𝐂𝐘𝐓]}}$
-
 ꒰ 🪓 ꒱ <a href="https://github.com/sharpfrostcherv">@𝐬𝐡𝐚𝐫𝐩𝐟𝐫𝐨𝐬𝐭𝐜𝐡𝐞𝐫𝐯</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐯𝐚𝐧! [𝐁𝐚𝐝 𝐓𝐡𝐢𝐧𝐠𝐬]
 
 † <a href="https://github.com/cherrip1e">@𝐜𝐡𝐞𝐫𝐫𝐢𝐩𝟏𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐈𝐧𝐟𝐞𝐫𝐧𝐮𝐬! [𝐃𝐞𝐚𝐝𝐥𝐨𝐜𝐤]
+
+$\text{\color{#A64B55}{†}}$ <a href="https://github.com/fukounagirl" style="color: #D98B9B;">@𝐟𝐮𝐤𝐨𝐮𝐧𝐚𝐠𝐢𝐫𝐥</a> $\text{\color{#A64B55}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#C46B7D}{𝐊𝐚𝐯𝐞𝐡!}}$ $\text{\color{#E6A8B5}{[𝐆𝐞𝐧𝐬𝐡𝐢𝐧 𝐈𝐦𝐩𝐚𝐜𝐭]}}$
+
+$\text{\color{#81C3E3}{⋆.˚໑ ݁༝ ۫ ׅ}}$ <a href="https://github.com/MYBRIGHTESTST4R" style="color: #81C3E3;">@𝐌𝐘𝐁𝐑𝐈𝐆𝐇𝐓𝐄𝐒𝐓𝐒𝐓𝟒𝐑</a> $\text{\color{#81C3E3}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐚𝐞𝐛𝐞𝐨𝐦 𝐊𝐰𝐨𝐧! [𝐎𝐮𝐫 𝐒𝐮𝐧𝐧𝐲 𝐃𝐚𝐲𝐬]}}$
+
+$\text{\color{#39804A}{†}}$ <a href="https://github.com/DucksEatBreads" style="color: #39804A;">@𝐃𝐮𝐜𝐤𝐬𝐄𝐚𝐭𝐁𝐫𝐞𝐚𝐝𝐬</a> $\text{\color{#39804A}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐉𝐨𝐡𝐧 𝐂𝐨𝐧𝐬𝐭𝐚𝐧𝐭𝐢𝐧𝐞! [𝐃𝐂]}}$<br>
+$\text{\color{#39804A}{𝐀𝐧𝐝 ♪ 𝐑𝐢𝐨𝐭! ♪ 𝐛𝐲 𝐃𝐞𝐚𝐝 𝐊𝐞𝐧𝐧𝐞𝐝𝐲𝐬}}$
+
+$\text{\color{#8B0000}{﹙⇀‸↼‶﹚🚬}}$ <a href="https://github.com/jsschlatt">@𝐣𝐬𝐬𝐜𝐡𝐥𝐚𝐭𝐭</a> $\text{\color{#8B0000}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#8B0000}{𝐉𝐬𝐜𝐡𝐥𝐚𝐭𝐭!}}$ $\text{\color{#8B0000}{[𝐌𝐂𝐘𝐓]}}$
 
 $\text{\color{#b48561}{𓏲𝄢}}$ <a href="https://github.com/felixylixywoah">@𝐟𝐞𝐥𝐢𝐱𝐲𝐥𝐢𝐱𝐲𝐰𝐨𝐚𝐡</a> $\text{\color{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#b48561}{𝐅𝐞𝐥𝐢𝐱!}}  \text{\color{#aa5b51}{ [𝐏𝐢𝐠𝐠𝐲 𝐑𝐨𝐛𝐥𝐨𝐱]}} \text{\color{#b48561}{🌹}}$ $\text{\color{#aa5b51}{𝐀𝐧𝐝}}$ <br>
 $\text{\color{#472f51}{☠︎︎ 𝐒𝐂𝐏-𝟎𝟑𝟓!}} \text{\color{#163240}{[𝐒𝐂𝐏 𝐅𝐨𝐮𝐧𝐝𝐚𝐭𝐢𝐨𝐧]}} \text{\color{#472f51}{🎭}}$
