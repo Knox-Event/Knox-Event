@@ -211,6 +211,8 @@ $\text{\color{#555555}{✮}}$ <a href="https://github.com/xoxo1ia">@𝐱𝐨𝐱
 
 ✮ <a href="https://github.com/nereherrman">@𝐧𝐞𝐫𝐞𝐡𝐞𝐫𝐫𝐦𝐚𝐧</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐞𝐠𝐨𝐫! [𝐋𝐢𝐦𝐛𝐮𝐬 𝐂𝐨𝐦𝐩𝐚𝐧𝐲]
 
+$\text{\color{#0818A8}{✮}}$ <a href="https://github.com/lacette">@𝐥𝐚𝐜𝐞𝐭𝐭𝐞</a> $\text{\color{#0818A8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐌𝐢𝐬𝐭𝐞𝐫 𝐅𝐚𝐧𝐭𝐚𝐬𝐭𝐢𝐜! [𝐌𝐚𝐫𝐯𝐞𝐥]}}$
+
 $\text{\color{#3979D8}{✮}}$ <a href="https://github.com/theresonatingpulse" style="color: #A9D5F5;">@𝐭𝐡𝐞𝐫𝐞𝐬𝐨𝐧𝐚𝐭𝐢𝐧𝐠𝐩𝐮𝐥𝐬𝐞</a> $\text{\color{#3979D8}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#78B5E8}{𝐂𝐨𝐨𝐥𝐞𝐫 𝐁𝐨𝐨𝐦𝐛𝐨𝐱}}$ $\text{\color{#DCEEFF}{! [𝐏𝐇𝐈𝐆𝐇𝐓𝐈𝐍𝐆!]}}$
 
 $\text{\color{#B22222}{[┐∵]┘}}$ <a href="https://github.com/ultronirl" style="color: #B22222;">@𝐮𝐥𝐭𝐫𝐨𝐧𝐢𝐫𝐥</a> $\text{\color{#B22222}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐔𝐥𝐭𝐫𝐨𝐧! [𝐌𝐚𝐫𝐯𝐞𝐥]}}$
@@ -252,7 +254,7 @@ $\text{\color{#FC8504}{✮}}$ <a href="https://github.com/denguemon" style="colo
 
 $\text{\color{#53BB95}{✮}}$ <a href="https://github.com/pawzu" style="color: #FC8504 ;">@𝐩𝐚𝐰𝐳𝐮</a> $\text{\color{#53BB95}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐊𝐨𝐧-𝐂𝐡𝐢! [𝐌𝐈𝐈𝐍 𝟏𝟗𝟕𝟓]}}$
 
-꒰ 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 𝐓𝐡𝐢𝐞𝐟 ꒱ ˖ <a href="https://github.com/rainedscythe">@𝐫𝐚𝐢𝐧𝐞𝐝𝐬𝐜𝐲𝐭𝐡𝐞</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐮𝐠𝐨 𝐕𝐥𝐚𝐝! [𝐙𝐞𝐧𝐥𝐞𝐬𝐬 𝐙𝐨𝐧𝐞 𝐙𝐞𝐫𝐨]
+$\text{\color{#7a619b}{꒰ 𝐌𝐨𝐜𝐤𝐢𝐧𝐠𝐛𝐢𝐫𝐝 ꒱ ˖}}$ <a href="https://github.com/hug0vlad">@𝐡𝐮𝐠𝟎𝐯𝐥𝐚𝐝</a> $\text{\color{#7a619b}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐇𝐮𝐠𝐨 𝐕𝐥𝐚𝐝! [𝐙𝐞𝐧𝐥𝐞𝐬𝐬 𝐙𝐨𝐧𝐞 𝐙𝐞𝐫𝐨]}}$
 
 ♕ <a href="https://github.com/datingdetergent">@𝐝𝐚𝐭𝐢𝐧𝐠𝐝𝐞𝐭𝐞𝐫𝐠𝐞𝐧𝐭</a> 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐓𝐲𝐝𝐮𝐬 𝐀𝐧𝐝𝐫𝐨𝐦𝐚𝐜𝐡𝐞! <br>
 [𝐃𝐚𝐭𝐞 𝐄𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠] 𝐀𝐧𝐝 𝐕𝐞𝐧𝐝𝐞𝐭𝐭𝐚! [𝐎𝐯𝐞𝐫𝐰𝐚𝐭𝐜𝐡] <br>
