@@ -54,7 +54,7 @@ $\text{\color{#F6A52B}{“ Let's}}$
 $\text{\color{#F3A027}{get}} \qquad \qquad \text{\color{#F09A20}{a}}$ $\text{\color{#EE911B}{bird's}} \quad \quad \quad \text{\color{#EB8918}{eye}}$<br>
 $\text{\color{#E98117}{view}} \qquad \text{\color{#E77A15}{of}} \quad \text{\color{#E77A15}{the}}$
 $\text{\color{#E57313}{lonely}} \quad \qquad \qquad \text{\color{#E16C12}{place}}$
-$\text{\color{#DD6411}{where}} \qquad \quad \text{\color{#D95D10}{you're}}$
+$\text{\color{#DD6411}{where}} \qquad \quad \text{\color{#D95D10}{you're}}$ <br>
 $\text{\color{#D4550F}{about}} \qquad \qquad \text{\color{#CF500E}{to}}$
 $\text{\color{#CA4B0D}{die}} \quad \quad \text{\color{#C6470C}{- miserable}}$
 $\text{\color{#8a3e15}{and}} \qquad \qquad \text{\color{#8a3e15}{alone! ”}} \quad \text{\color{#8a3e15}{— Spiffo}}$
