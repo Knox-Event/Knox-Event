@@ -476,8 +476,9 @@ $\text{\color{#4ac925}{†}}$ <a href="https://github.com/erisolsprites" style="
 $\text{\color{#7E4C4C}{†}}$ <a href="https://github.com/OlgaSinxer" style="color: #7E4C4C;">@𝐎𝐥𝐠𝐚𝐒𝐢𝐧𝐱𝐞𝐫</a> $\text{\color{#7E4C4C}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#762929}{𝐒𝐢𝐨𝐧! [𝐌𝐞𝐝𝐢𝐚𝐌𝐚𝐥𝐥𝐞𝐨𝐥𝐮𝐬]}}$ <br>
 $\text{\color{#7E4C4C}{𝐂𝐮𝐫𝐫𝐞𝐧𝐭 𝐖𝐞𝐚𝐩𝐨𝐧:} \color{#762929}{𝐂𝐥𝐚𝐰𝐬!}}$
 
-$\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
+$\text{\color{#397B9E}{†}}$ <a href="https://github.com/2taild" style="color: #59A9A0;">@𝟐𝐭𝐚𝐢𝐥𝐝</a> $\text{\color{#59A9A0}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬}}$ $\text{\color{#83C68A}{𝟐-𝐃!}}$ $\text{\color{#A5D69B}{[𝐆𝐨𝐫𝐢𝐥𝐥𝐚𝐳]}}$
 
+$\text{\color{#F3B300}{†}}$ <a href="https://github.com/lonesomestreet" style="color: #F3B300;">@𝐥𝐨𝐧𝐞𝐬𝐨𝐦𝐞𝐬𝐭𝐫𝐞𝐞𝐭</a> $\text{\color{#F3B300}{𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭'𝐬 𝐆𝐫𝐚𝐡𝐚𝐦 𝐂𝐨𝐱𝐨𝐧! [𝐁𝐥𝐮𝐫]}}$
 
 $\text{\color{#268FE8}{†}}$ <a href="https://github.com/jazzymage" style="color: #268FE8;">@𝐣𝐚𝐳𝐳𝐲𝐦𝐚𝐠𝐞</a> $\text{\color{#268FE8}{𝐢𝐬} \color{#347BCB}{𝐊𝐧𝐨𝐱} \color{#416BAE}{𝐄𝐯𝐞𝐧𝐭'𝐬} \color{#405D91}{𝐇𝐮𝐧𝐭𝐞𝐫!} \color{#394E76}{[𝐋𝐞𝐟𝐭} \color{#35445F}{𝟒} \color{#303B4B}{𝐃𝐞𝐚𝐝]}}$
 
